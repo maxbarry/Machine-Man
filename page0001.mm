@@ -1,5 +1,6 @@
 <p>Page 1.</p>
-<h5>CHAPTER ONE</h5>
+<h5>CHAPTER 
+ONE</h5>
 <p>One Tuesday afternoon my left leg was
 severed. It wasn&rsquo;t as bad as it sounds. Well, it was. It was
 agonizing. There was a lot of screaming and flopping around and
@@ -17,4 +18,3 @@ my hospital bed, I came to see the bright side. I remembered that
 expression: <em>A setback is just an opportunity in disguise</em>.
 I decided that was true. Because while I was sad to lose my leg, now
 I could build a better one.</p>
-
