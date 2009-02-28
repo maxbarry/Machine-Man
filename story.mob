@@ -1,0 +1,9 @@
+<div class="post">
+ <div class="page">
+ <div class="backarrow"><a href="#"><img src="/images/backarrow.png" alt="Previous page" title="Previous Page" style="border:none" /></a></div>
+ <div class="pagehead"><h6>$title</h6></div>
+ <h6>Machine Man</h6>
+ $body
+ <h1>$mmpage::pagenum.</h1>
+ </div>
+</div>
