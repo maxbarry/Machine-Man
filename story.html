@@ -1,13 +1,22 @@
 <div class="post">
  <div class="page">
- <div class="pagehead"><h6>$title</h6></div>
+ <div class="pagehead"><h6>$title.</h6></div>
  <h6>Machine Man</h6>
  $body
  <h1>$mmpage::pagenum.</h1>
  </div>
+
+<div class="share">
+<p><a class="a2a_dd" href="http://www.addtoany.com/share_save?linkurl=$pagelink::link"><img src="/images/share.gif" alt="Share" title="Share" />Share</a><script
+ type="text/javascript">a2a_linkname="Max Barry: $title";a2a_linkurl="$pagelink::link";a2a_num_services=4;@@pagelink->add2any()@@</script>
+| <a href="http://www.addtoany.com/email?linkurl=$pagelink::link&linkname=Max Barry: $title"><img src="/images/email.gif" alt="Email" title="Email" />Email</a>
+| <a href="$pagelink::link#$fn-comments"><img src="/images/comment.gif" alt="Comment" title="Comment" />$comments::num_comments</a>
+| <a href="$pagelink::baseurl/">MaxBarry.com</a> &rsaquo; 
+<a href="$pagelink::baseurl$path/"><span style="">$menu::label</span></a> &rsaquo;
+<a href="$pagelink::link">$title</a>
+</p>
+</div>
+
 <div class="nextpage">$mmpage::next_page</div>
 <div class="prevpage">$mmpage::prev_page</div>
-<h4>[<a href="$path/">$menu::label</a>]
-[<a href="/$yr/$mo_num/$da/news.html">link</a>] 
-[<a href="/$yr/$mo_num/$da/news.html#$fn-comments">$comments::num_comments</a>]</h4>
-</div>
+
