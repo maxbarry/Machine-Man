@@ -7,7 +7,7 @@ thrilled about it either, but I had the good manners to not make it
 obvious. Carl bore me through the white corridors like I was nuclear
 waste, his head half-turned away.</p>
 <p>Once we passed through the unrestricted
-areas, Cassandra Tourney, the beautiful lawyer, materialized and fell
+areas, Cassandra Cautery, the beautiful lawyer, materialized and fell
 into step beside me. Or beside Carl, I guess, since he was the one
 stepping. But you know what I mean. &ldquo;Well played.&rdquo; Her
 lovely, dangerous scent drifted over me. &ldquo;By returning to work,
@@ -18,11 +18,11 @@ it won&rsquo;t matter. I&rsquo;m going to crush you.&rdquo;</p>
 <p>Carl stopped at an elevator. My head
 was positioned uncomfortably close to the doors, but Carl didn&rsquo;t
 care. It was probably deliberate.</p>
-<p>Cassandra Tourney leaned close. &ldquo;There
+<p>Cassandra Cautery leaned close. &ldquo;There
 is a reason I haven&rsquo;t lost a single case as chief counsell for
 this firm, Mr. Ainsely. Do you know what it is?&rdquo;</p>
 <p>The elevator arrived. Carl stepped into
-it. My hair brushed the wall. Cassandra Tourney stood framed between
+it. My hair brushed the wall. Cassandra Cautery stood framed between
 the silver doors. Her eyes were like chips of coal.</p>
 <p>&ldquo;It&rsquo;s because I&rsquo;m a
 machine,&rdquo; she said.</p>

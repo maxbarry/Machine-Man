@@ -1,36 +1,16 @@
 <p>Page 15.</p>
-<p>&ldquo;One of
-the problems with legs,&rdquo; I said, &ldquo;is they can&rsquo;t
-survive on their own. They need to be attached to a body to function.
-They&rsquo;re not&mdash;&rdquo;</p>
-<p>Lola Banks
-looked up from fiddling with her access badge, her eyes wide.
-&ldquo;<em>Standalone?</em>&rdquo;</p>
-<p>&ldquo;Right.&rdquo;
-I realized this was a quip. &ldquo;Right.&rdquo;</p>
-<p>She studied my
-face. &ldquo;I like your thinking, Charlie. I&rsquo;m just not sure
-what benefit you get, in a practical sense, from a self-powered leg.&rdquo;</p>
-<p>The elevator
-doors slid open. My chair-leg rollers <em>clickety-clacked</em> over
-the uneven exit. &ldquo;Well, you&rsquo;re no longer limited by the
-body&rsquo;s energy supply.&rdquo;</p>
-<p>&ldquo;How far
-down are we?&rdquo; Lola Banks said, looking at the walls. 
-</p>
-<p>&ldquo;About a
-hundred feet. So obviously if you can install a small reactor in the
-leg, raising that energy limit from a kilojoule or so per second to,
-say, 4.2 megajoules per second, you greatly increase the functional
-possibilities.&rdquo;</p>
-<p>&ldquo;Why are
-we down a hundred feet?&rdquo;</p>
-<p>&ldquo;In case
-something goes wrong, I guess.&rdquo; I swiped my card. The first
-pressurised door to the Glass Room began to open.</p>
-<p>&ldquo;Wait,&rdquo;
-said Lola Banks. &ldquo;Back up. Did you say you <em>reactor</em>?&rdquo;</p>
-<p>&ldquo;Small,&rdquo;
-I said. &ldquo;Small reactor. We build those here.&rdquo;</p>
-<p>&ldquo;What are
-you doing with a small reactor?&rdquo;</p>
+<p>I waited in the
+lobby while Lola Banks had the inside of her mouth swabbed and
+answered questions in a harshly lit room about everyone she had ever
+met, everywhere she had ever been, and her Facebook profile. This
+took about forty minutes. Then she emerged, waved, and was escorted
+into the Dispassionate Particle Sifter, which was like a metal
+detector for a very advanced definition of metal. As a side-benefit,
+it could also tell you if you had cancer. Usually this was a
+two-minute procedure, but when Lola stepped out she was re-buttoning
+her blouse and two hours had passed.</p>
+<p>I clanked over
+to her. &ldquo;What was that about?&rdquo;</p>
+<p>&ldquo;Oh.
+Nothing. I always have trouble with metal detectors.&rdquo; She
+smiled. &ldquo;Tell me about your leg.&rdquo;</p>

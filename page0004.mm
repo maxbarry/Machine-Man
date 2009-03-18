@@ -20,17 +20,17 @@ you stated that you felt on the path to a full recovery.&rdquo;</p>
 <p>&ldquo;Are you from
 the company?&rdquo;</p>
 <p>&ldquo;I&rsquo;m
-Cassandra Tourney.&rdquo; She smiled. Her teeth were like needles. Or
+Cassandra Cautery.&rdquo; She smiled. Her teeth were like needles. Or
 maybe that was the drugs. I was on a lot of painkillers. &ldquo;I&rsquo;m
 here to help.&rdquo;</p>
 <p>&ldquo;I&rsquo;m
 not going to sue.&rdquo;</p>
-<p>Tourney glanced at
+<p>Cautery glanced at
 her black box. &ldquo;You just confirmed that you decline to take
 legal action against Better Future, is that correct?&rdquo;</p>
 <p>&ldquo;Wait.&rdquo;
 I was starting to wake up. &ldquo;Now I&rsquo;m not sure.&rdquo;</p>
-<p>Cassandra Tourney
+<p>Cassandra Cautery
 rose from the bed. Her face was blank and terrible. She came closer
 until her face blotted out my world and her hair touched my cheek.
 Her breath smelled of betrayal and cinnamon. &ldquo;Are you trying to
