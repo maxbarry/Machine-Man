@@ -18,9 +18,10 @@ it won&rsquo;t matter. I&rsquo;m going to crush you.&rdquo;</p>
 <p>Carl stopped at an elevator. My head
 was positioned uncomfortably close to the doors, but Carl didn&rsquo;t
 care. It was probably deliberate.</p>
-<p>Cassandra Cautery leaned close. &ldquo;There
-is a reason I haven&rsquo;t lost a single case as chief counsell for
-this firm, Mr. Ainsely. Do you know what it is?&rdquo;</p>
+<p>Cassandra Cautery leaned close.
+&ldquo;There&rsquo;s a reason this company hasn&rsquo;t had a public
+image breach the entire time I&rsquo;ve been in Media Control, Mr.
+Ainsely. Do you know what it is?&rdquo;</p>
 <p>The elevator arrived. Carl stepped into
 it. My hair brushed the wall. Cassandra Cautery stood framed between
 the silver doors. Her eyes were like chips of coal.</p>
@@ -28,7 +29,7 @@ the silver doors. Her eyes were like chips of coal.</p>
 machine,&rdquo; she said.</p>
 <p>The doors slid closed. The elevator
 hummed. The floor numbers ticked lower.</p>
-<p>&ldquo;She&rsquo;s really hot,&rdquo; I
-said to Carl. &ldquo;Don&rsquo;t you think?&rdquo;</p>
+<p>&ldquo;She&rsquo;s hot,&rdquo; I said
+to Carl. &ldquo;Don&rsquo;t you think?&rdquo;</p>
 <p>Carl didn&rsquo;t speak. But he agreed,
 I could tell.</p>
