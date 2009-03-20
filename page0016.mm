@@ -16,7 +16,7 @@ doors slid open. My chair-leg rollers <em>clickety-clacked</em> over
 the uneven exit. &ldquo;Well, you&rsquo;re no longer limited by the
 body&rsquo;s energy supply.&rdquo;</p>
 <p>&ldquo;How far
-down are we?&rdquo; Lola Banks said, eyeing the steel buttresses that
+down are we?&rdquo; Lola Banks said, eying the steel buttresses that
 reinforced the walls.</p>
 <p>&ldquo;About a
 hundred feet. So obviously if you can install a small reactor in the

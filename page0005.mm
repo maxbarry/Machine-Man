@@ -9,8 +9,8 @@ people. Well, maybe not <em>repels</em>: that bores them. People look
 at me and know I am a waste of their time.</p>
 <p>I am a smart guy. I
 am good and conscientious and sometimes funny. These are qualities I
-keep hearing are desireable. I can only think there must be some
-other vital ingrediant that no-one is letting on, because I have no
+keep hearing are desirable. I can only think there must be some other
+vital ingredient that no-one is letting on, because I have no
 friends, don&rsquo;t speak to my family, and my last date was in high
 school. There is a guy in Media Control who once killed a woman with
 his car, and he gets invited to parties. I don&rsquo;t understand

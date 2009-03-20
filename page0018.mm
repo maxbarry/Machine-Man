@@ -4,7 +4,7 @@ I sat alone in the lab, thinking. I remembered how her hands had run
 over the prototype&rsquo;s metal; how they had caressed it. I was
 very pleased that Lola liked my new leg, but I felt unsettled, too.
 For a while I thought it was just that I was almost finished, because
-I always get a little despondant when a project is coming to a close.
+I always get a little despondent when a project is coming to a close.
 I tend to look around for ways to tinker, add a few last-minute
 features. To draw it out.</p>
 <p>But that wasn&rsquo;t
