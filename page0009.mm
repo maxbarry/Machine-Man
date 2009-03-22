@@ -5,7 +5,7 @@ THREE</h5>
 due to be discharged. Until this point, the only contact I&rsquo;d
 had from him had been via e-mail. &ldquo;Hey, Charlie,&rdquo; he said
 weakly, his eyes shifting away. I made him uncomfortable. Not because
-of the stump. He had felt this way about me since forever. &ldquo;You&rsquo;re
+of the stump. He had felt this way about me forever. &ldquo;You&rsquo;re
 doing great, they say.&rdquo;</p>
 <p>&ldquo;I&rsquo;m getting out tomorrow.
 Can I come back to work?&rdquo;</p>
@@ -14,7 +14,7 @@ swallowed. &ldquo;Get back on the horse, then.&rdquo;</p>
 <p>&ldquo;Yes. Can&rsquo;t let a little
 accident derail everything.&rdquo;</p>
 <p>&ldquo;Accident.&rdquo; He nodded.
-&ldquo;Right. That&rsquo;s what it was.&rdquo;</p>
+&ldquo;Exactly. That&rsquo;s just what it was.&rdquo;</p>
 <p>&ldquo;Also, I have a new project.&rdquo;</p>
 <p>&ldquo;Ah.&rdquo; His lip trembled.
 &ldquo;Well.&rdquo;</p>
