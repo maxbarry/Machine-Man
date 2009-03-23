@@ -1,6 +1,6 @@
 <p>Page 8.</p>
 <p>I asked a nurse for a sketch book and
-began drawing up specs. <em>Fleshing out the concept</em>,
+began drawing up specs. <em>Fleshing out the </em><em>concept</em>,
 Lola Banks might have said. I thought about what I really wanted from
 a leg. It seemed to me, as I lay in my hospital bed, that the
 designer of biological legs had not been particularly ambitious. I

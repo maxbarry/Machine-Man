@@ -12,11 +12,11 @@ recycle. Once I found a lost cat in the city and caught it and took
 it to the cat home. Sometimes I make jokes. I can tell what&rsquo;s
 wrong with your car just by listening to it. I think women are
 beautiful and can do anything they put their minds to. I like kids,
-except the ones who are rude to their parents and the parents just
-stand there, smiling. I have a steady job. I own my own apartment. I
-don&rsquo;t lie. These are qualities I keep hearing people like. I
-can only think there must be some other ingredient that no-one is
-letting on, something vital, because I have no friends, am estranged
-from my family, and haven&rsquo;t dated this decade. There is a guy
-in Lab Control who once killed a woman with his car, and he gets
-invited to parties. I don&rsquo;t understand that.</p>
+except the ones who are rude to adults and the parents just stand
+there, smiling. I have a steady job. I own my own apartment. I don&rsquo;t
+lie. These are qualities I keep hearing that people like. I can only
+think there must be some other ingredient no-one is letting on,
+something vital, because I have no friends, am estranged from my
+family, and haven&rsquo;t dated this decade. There is a guy in Lab
+Control who once killed a woman with his car, and he gets invited to
+parties. I don&rsquo;t understand that.</p>

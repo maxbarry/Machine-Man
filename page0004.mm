@@ -30,7 +30,7 @@ action against Better Future, is that correct?&rdquo;</p>
 My brain was beginning to work. &ldquo;Now I&rsquo;m not sure.&rdquo;</p>
 <p>Cassandra Cautery
 rose from the bed. Her face was blank and terrible. She came closer
-until her face blotted out the world. Her hair dangled above my
+until her face blotted out the world and her hair dangled above my
 cheek. Her breath smelled of cinnamon and betrayal. &ldquo;Are you
 trying to threaten me?&rdquo;</p>
 <p>&ldquo;What? No.&rdquo;</p>
