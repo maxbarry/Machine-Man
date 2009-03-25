@@ -28,18 +28,17 @@ off your pants.&rdquo;</p>
 really care about a natural look.&rdquo;</p>
 <p>Lola&rsquo;s breath caught. &ldquo;<em>Really</em>.
 Well, let me... just a minute.&rdquo; She came up with something
-black and lightweight that I vaguely recognized from the Paralympic
-Games. The foot was two arched prongs, like skis. &ldquo;This is an
-Endolite Echelon on a microprocessor-controlled adaptive knee. Gives
-you multi-axis rotation, polycentric swing, maximum energy return.
-That heel, that&rsquo;s carbon polymer. It&rsquo;s the same model the
-Olympics banned because they deemed it held an unfair advantage over
-biological legs.&rdquo; Her eyes searched mine. &ldquo;You don&rsquo;t
-seem excited.&rdquo;</p>
+black and lightweight. The foot was comprised of arched prongs, like
+skis. &ldquo;This is an Endolite Echelon on a
+microprocessor-controlled adaptive knee. Gives you multi-axis
+rotation, polycentric swing, maximum energy return. That heel, that&rsquo;s
+carbon polymer. It&rsquo;s the same model the Olympics banned because
+they deemed it held an unfair advantage over biological legs.&rdquo;
+Her eyes searched mine. &ldquo;You don&rsquo;t seem excited.&rdquo;</p>
 <p>&ldquo;It&rsquo;s nice. It&rsquo;s
 just... I was hoping for something a little more...&rdquo; I searched
 for the word. &ldquo;Cutting-edge.&rdquo;</p>
-<p>&ldquo;Ha!&rdquo; Lola said, her eyes
+<p>&ldquo;Ha!&rdquo; said Lola, her eyes
 lighting up. I realized I had made a pun. I have noticed that people
 in the medical profession have dark senses of humor. To them, a joke
 is never complete until it includes a defiled corpse, or spray of

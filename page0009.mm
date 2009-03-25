@@ -33,7 +33,7 @@ If you could arrange for someone to carry me down to the labs, that
 would be great. But after tomorrow, I&rsquo;ll be fine.&rdquo;</p>
 <p>My boss went silent for a few moments.
 His name was D. Peters. I forget what the D stood for. E-mails from
-him, they just showed up as D. Peters. &ldquo;Charlie, if you want to
-take a few months&mdash;&rdquo;</p>
+him just showed up as D. Peters. &ldquo;Charlie, if you want to take
+a few months&mdash;&rdquo;</p>
 <p>&ldquo;I don&rsquo;t,&rdquo; I said.
 &ldquo;Just get someone to carry me, thank you.&rdquo;</p>
