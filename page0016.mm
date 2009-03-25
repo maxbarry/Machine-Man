@@ -26,8 +26,8 @@ possibilities.&rdquo;</p>
 <p>&ldquo;Why are
 we down a hundred feet?&rdquo;</p>
 <p>&ldquo;In case
-something goes wrong, I guess.&rdquo; I swiped my card. The first set
-of doors to the Glass Room began to depressurize.</p>
+something goes wrong.&rdquo; I swiped my card. The first set of doors
+to the Glass Room began to depressurize.</p>
 <p>&ldquo;Wait,&rdquo;
 said Lola Banks. &ldquo;Back up. Did you say you <em>reactor</em>?&rdquo;</p>
 <p>&ldquo;Small,&rdquo;

@@ -1,6 +1,6 @@
 <p>Page 13.</p>
 <p>My three graduate assistants were
-already in the Glass Room: Jason, Candice, and Elaine. Candice was
+already in the Glass Room: Jason, Kathline, and Elaine. Kathline was
 the one who wasn&rsquo;t Chinese. I was supposed to be teaching these
 kids something while they worked for me, but I had never been sure
 what. They in turn had figured out that I was unlikely to help their

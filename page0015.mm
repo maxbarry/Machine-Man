@@ -11,6 +11,6 @@ two-minute procedure, but when Lola stepped out she was re-buttoning
 her blouse and two hours had passed.</p>
 <p>I clanked over
 to her. &ldquo;What was that about?&rdquo;</p>
-<p>&ldquo;Oh.
-Nothing. I always have trouble with metal detectors.&rdquo; She
+<p>&ldquo;Oh,
+nothing. I always have trouble with metal detectors.&rdquo; She
 smiled. &ldquo;Tell me about your leg.&rdquo;</p>

@@ -21,8 +21,8 @@ was positioned uncomfortably close to the doors, but Carl didn&rsquo;t
 care. It was probably deliberate.</p>
 <p>Cassandra Cautery leaned close.
 &ldquo;There&rsquo;s a reason this company hasn&rsquo;t had a public
-image breach the entire time I&rsquo;ve been in Media Control, Mr.
-Ainsely. Do you know what it is?&rdquo;</p>
+image breach the entire time I&rsquo;ve been chief counsel for Media
+Control, Dr. Crux. Do you know what it is?&rdquo;</p>
 <p>The elevator arrived. Carl stepped into
 it. My hair brushed the wall. Cassandra Cautery stood framed between
 the silver doors. Her eyes were like chips of coal.</p>

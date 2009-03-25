@@ -1,7 +1,7 @@
 <p>Page 7.</p>
 <p>Her name was Lola Banks. She was
 twenty-four and studying prosthetics part-time. I learned this as she
-took me through her selection of artificial legs. &ldquo;This is
+took me through her selection of artificial legs. &ldquo;Now, this is
 entry-level,&rdquo; Lola said. &ldquo;I&rsquo;m showing you this just
 so you know what&rsquo;s out there.&rdquo;</p>
 <p>The lower section was a pole, exactly
@@ -40,10 +40,10 @@ seem excited.&rdquo;</p>
 just... I was hoping for something a little more...&rdquo; I searched
 for the word. &ldquo;Cutting-edge.&rdquo;</p>
 <p>&ldquo;Ha!&rdquo; Lola said, her eyes
-lighting up. I realized I had made a pun. I have noticed this about
-people in the medical profession: they have dark senses of humor. To
-them, a joke is never complete until it includes a defiled corpse, or
-spray of blood. &ldquo;No, seriously. This is the best we have.&rdquo;</p>
+lighting up. I realized I had made a pun. I have noticed that people
+in the medical profession have dark senses of humor. To them, a joke
+is never complete until it includes a defiled corpse, or spray of
+blood. &ldquo;No, seriously. This is the best we have.&rdquo;</p>
 <p>&ldquo;Oh,&rdquo; I said. &ldquo;Can I
 think about it?&rdquo;</p>
 <p>&ldquo;Sure,&rdquo; said Lola Banks.

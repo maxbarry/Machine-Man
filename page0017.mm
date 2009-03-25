@@ -21,13 +21,35 @@ me.</p>
 <p>&ldquo;See that
 tripod wheel at the base? That rotates. There&rsquo;s always some
 part of it touching the ground.&rdquo;</p>
-<p>&ldquo;Huh.&rdquo;
-She crept closer to it. Then she squatted, reached out, and touched
-it.</p>
+<p>&ldquo;Huh. And
+what&rsquo;s this?&rdquo; She pointed at a squat black box,
+protruding from one side.</p>
+<p>&ldquo;The
+processor.&rdquo; I rubbed my chin. &ldquo;I&rsquo;m not really happy
+with the positioning. It&rsquo;s a little vulnerable.&rdquo;</p>
+<p>&ldquo;What does
+it do?&rdquo;</p>
+<p>&ldquo;Oh. You
+know. Basic monitoring and control. GPS. Data storage. Wi-fi.&rdquo;</p>
+<p>She blinked.
+&ldquo;Your leg has wi-fi?&rdquo;</p>
+<p>&ldquo;Of
+course. Otherwise it couldn&rsquo;t interface with Google Maps for
+optimum path-finding.&rdquo;</p>
+<p>Lola looked at
+me blankly.</p>
+<p>&ldquo;Basic
+encapsulation,&rdquo; I explained.
+&ldquo;You shouldn&rsquo;t need to keep telling your leg where to
+step. You should tell it where you want to go, and let it figure out
+how to get you there.&rdquo;</p>
+<p>She looked back
+at the leg. I don&rsquo;t think she really understood encapsulation.
+But she liked it. She squatted, reached out, and touched it.</p>
 <p>I cleared my
 throat. &ldquo;What do you think?&rdquo;</p>
-<p>She ran her
-fingers down the chrome. &ldquo;It&rsquo;s the most beautiful thing
-I&rsquo;ve ever seen.&rdquo;</p>
+<p>Her fingers ran
+over the chrome. They caressed the plastic. &ldquo;It&rsquo;s the
+most beautiful thing I&rsquo;ve ever seen.&rdquo;</p>
 <p>I felt myself
 flushing. &ldquo;Thanks.&rdquo;</p>

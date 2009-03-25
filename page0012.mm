@@ -10,7 +10,6 @@ harmless, and served only as a wake-up call to management. But later
 I overheard a version in which six people died before the complex
 could be locked down, and thirty-one afterward, when they flooded the
 labs with gas. This was according to Jason, one of my graduate lab
-assistants. Since he was telling Candice, also a lab assistant, I
-thought he was probably embellishing. But I&rsquo;ve never been able
-to tell when people are lying. All I know is the walls are plastic
-now.</p>
+assistants. Since he was telling Kathline, also a lab assistant, I
+guessed he was embellishing. But I&rsquo;ve never been able to tell
+when people are lying. All I know is the walls are plastic now.</p>
