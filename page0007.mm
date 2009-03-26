@@ -33,8 +33,8 @@ skis. &ldquo;This is an Endolite Echelon on a
 microprocessor-controlled adaptive knee. Gives you multi-axis
 rotation, polycentric swing, maximum energy return. That heel, that&rsquo;s
 carbon polymer. It&rsquo;s the same model the Olympics banned because
-they deemed it held an unfair advantage over biological legs.&rdquo;
-Her eyes searched mine. &ldquo;You don&rsquo;t seem excited.&rdquo;</p>
+they deemed it held an unfair advantage over meat legs.&rdquo; Her
+eyes searched mine. &ldquo;You don&rsquo;t seem excited.&rdquo;</p>
 <p>&ldquo;It&rsquo;s nice. It&rsquo;s
 just... I was hoping for something a little more...&rdquo; I searched
 for the word. &ldquo;Cutting-edge.&rdquo;</p>

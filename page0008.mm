@@ -6,7 +6,7 @@ from a leg. It seemed to me, as I lay in my hospital bed, that
 the designer of biological legs had not been particularly ambitious.
 I mean, I don&rsquo;t mean to criticize. Legs are perfectly adequate
 at conveying a small biological mass from A to B at low speed, so
-long as A and B are not particularly far apart. That was pretty good,
-when you were limited to raw materials you could grow yourself. But I
-had to think that if anyone was designing a leg today, they would
-build in a lot more features.</p>
+long as A and B are not particularly far apart. That&rsquo;s pretty
+good, when you&rsquo;re limited to raw materials you can grow
+yourself. But I had to think that if anyone was designing a leg
+today, they would build in a lot more features.</p>
