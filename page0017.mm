@@ -40,10 +40,9 @@ course. Otherwise it couldn&rsquo;t interface with the Google Maps
 API for path-finding.&rdquo;</p>
 <p>Lola looked at
 me blankly.</p>
-<p>&ldquo;You
-shouldn&rsquo;t need to keep telling your leg where to step. You
-should tell it where you want to go, and let it figure out how to get
-you there. That&rsquo;s basic encapsulation.&rdquo;</p>
+<p>&ldquo;You shouldn&rsquo;t need to keep telling your leg where to
+step. You should tell it where you want to go, and let it figure out
+how to get you there. That&rsquo;s basic encapsulation.&rdquo;</p>
 <p>Lola looked back
 at the leg. I don&rsquo;t think she really understood encapsulation.
 But she liked my leg. She squatted, reached out, and touched it.</p>
