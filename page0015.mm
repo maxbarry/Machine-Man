@@ -8,7 +8,7 @@ into the Dispassionate Particle Sifter, which was like a metal
 detector for a very advanced definition of metal. As a side-benefit,
 it could also tell you if you had cancer. Usually this was a
 two-minute procedure, but when Lola stepped out she was re-buttoning
-her blouse and two hours had passed.</p>
+her blouse and two hours had elapsed.</p>
 <p>I clanked over
 to her. &ldquo;What was that about?&rdquo;</p>
 <p>&ldquo;Oh,
