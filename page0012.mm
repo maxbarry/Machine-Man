@@ -10,7 +10,7 @@ was harmless, and served as a wake-up call to management. But later I
 overheard a version in which six people died before the complex could
 be locked down, and thirty-one afterward, when they flooded the labs
 with gas. This was according to Jason, one of my graduate lab
-assistants. Since he was telling it to Elaine, the best-looking
+assistants. Since he was telling it to Elaine, my best-looking
 graduate lab assistant, I figured he was embellishing. But I&rsquo;ve
 never been able to tell when people are lying. All I know is the
 walls are plastic now.</p>
