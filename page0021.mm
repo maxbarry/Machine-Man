@@ -19,6 +19,6 @@ stereo.</p>
 shouting and the Audi swerved around me. I watched it slingshot
 around the next corner. If anyone had been coming, he would have
 killed them.</p>
-<p>As I walked on, I decided that our
-civilization had reached an important milestone. We had begun making
+<p>As I hefted my schoolbag, I realized
+that we had reached an important milestone. We had begun making
 better machines than people.</p>

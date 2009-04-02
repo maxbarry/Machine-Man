@@ -14,7 +14,7 @@ said D. Peters. &ldquo;He did it himself. There&rsquo;s no question.&rdquo;</p>
 <p>&ldquo;Hmm.&rdquo; I tried to move my
 head, to see Cassandra Cautery, but couldn&rsquo;t. A sun hung over
 my face, angry and brilliant. It looked familiar. It was a lab light.
-The problem with this was it suggested I was lying on the floor,
+The problem with this was that it meant I was lying on the floor,
 bleeding to death.</p>
 <p>&ldquo;He moved,&rdquo; said D. Peters.
 &ldquo;Just then. Did you see that?&rdquo;</p>
@@ -22,11 +22,10 @@ bleeding to death.</p>
 said Cassandra Cautery. &ldquo;You&rsquo;re a panicker, Dick. It&rsquo;s
 your panicking that led us here.&rdquo;</p>
 <p>&ldquo;For God&rsquo;s sake,&rdquo;
-said D. Peters. Or Dick, I guess. I understood now why he usually
-referred to himself as D. Peters.</p>
+said D. Peters. Or Dick, I guess.</p>
 <p>&ldquo;We have a role for panickers at
 this company,&rdquo; said Cassandra Cautery. &ldquo;But it&rsquo;s
-not management.&rdquo;</p>
+not in management.&rdquo;</p>
 <p>D. Peters said nothing. After a while,
 I said, &ldquo;Urgh...&rdquo; 
 </p>

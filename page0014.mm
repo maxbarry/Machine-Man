@@ -1,7 +1,7 @@
 <p>Page 14.</p>
 <h5>CHAPTER  FOUR</h5>
-<p>On my third day
-back, Lola Banks, the prosthetic specialist from the hospital,
+<p>In my second
+week out of the hospital, Lola Banks, the prosthetic specialist,
 visited me at work. It had to be at work; I hadn&rsquo;t gone home. I
 told my boss that my leg made the commute too hard, but to be honest,
 I&rsquo;d been hoping to do this for years. The company had showers,
