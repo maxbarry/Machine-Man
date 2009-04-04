@@ -22,17 +22,17 @@ me.</p>
 <p>&ldquo;That base
 rotates. It&rsquo;s essentially a wheel, on a shifting
 multi-dimensional axis.&rdquo; I wanted to tell her its top speed,
-but didn&rsquo;t, in case she thought I was showing off</p>
-<p>&ldquo;Huh. And
-what&rsquo;s this?&rdquo; She pointed at a squat black box,
-protruding from one side.</p>
+but didn&rsquo;t. She would think I was showing off.</p>
+<p>&ldquo;And
+what&rsquo;s this?&rdquo; She pointed at a squat black box, which
+protruded from one side.</p>
 <p>&ldquo;The
 processor. I&rsquo;m not really happy with the positioning on that.
 It&rsquo;s a little vulnerable.&rdquo;</p>
 <p>&ldquo;What does
 it do?&rdquo;</p>
-<p>&ldquo;Oh. You
-know. Basic monitoring and control. GPS. Data storage. Wi-fi.&rdquo;</p>
+<p>&ldquo;You know.
+Basic monitoring and control. GPS. Data storage. Wi-fi.&rdquo;</p>
 <p>&ldquo;Your leg
 has wi-fi?&rdquo;</p>
 <p>&ldquo;Of
@@ -41,15 +41,17 @@ API for path-finding.&rdquo;</p>
 <p>Lola looked at
 me blankly.</p>
 <p>&ldquo;You shouldn&rsquo;t need to keep telling your leg where to
-step. You should tell it where you want to go, and let it figure out
-how to get you there. That&rsquo;s basic encapsulation.&rdquo;</p>
+step. You should tell it where you want to go, and let it calculate
+how best to get you there. That&rsquo;s basic encapsulation.&rdquo;</p>
 <p>Lola looked back
 at the leg. I don&rsquo;t think she really understood encapsulation.
-But she liked my leg. She squatted, reached out, and touched it.</p>
+But she was very impressed with my leg. She knelt on the floor before
+it. The leg was under a lab spotlight, about three feet tall. She
+reached out and touched it.</p>
 <p>I cleared my
 throat. &ldquo;What do you think?&rdquo;</p>
 <p>Her fingers ran
-over the chrome. &ldquo;It&rsquo;s the most beautiful thing I&rsquo;ve
+down the chrome. &ldquo;It&rsquo;s the most beautiful thing I&rsquo;ve
 ever seen.&rdquo;</p>
 <p>I felt myself
 flushing. &ldquo;Thanks.&rdquo;</p>

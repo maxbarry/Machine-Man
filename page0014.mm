@@ -5,8 +5,8 @@ week out of the hospital, Lola Banks, the prosthetic specialist,
 visited me at work. It had to be at work; I hadn&rsquo;t gone home. I
 told my boss that my leg made the commute too hard, but to be honest,
 I&rsquo;d been hoping to do this for years. The company had showers,
-a 24-hour kitchen, even rooms with bunks. Why wouldn&rsquo;t you live
-here? There was everything you could ever need.</p>
+a 24-hour kitchen, and private rooms with bunks. Why wouldn&rsquo;t
+you live here? There was everything you needed.</p>
 <p>&ldquo;Whoa,&rdquo;
 said Lola Banks. &ldquo;What is that thing?&rdquo;</p>
 <p>I looked down.
@@ -18,12 +18,11 @@ lobby, which was the size of a small cathedral, and a few people
 glanced at us.</p>
 <p>&ldquo;I did.&rdquo;</p>
 <p>&ldquo;You
-strapped pieces of an office chair to your leg? Why would you do
-that?&rdquo;</p>
+strapped half an office chair to your leg? Why would you do that?&rdquo;</p>
 <p>&ldquo;Well,&rdquo;
 I said. &ldquo;I can sit in this. If you think about it, isn&rsquo;t
-it better to take seating with you than scatter chairs everywhere you
-might possibly want to sit?&rdquo;</p>
+it better for people to take their own seating with them, rather than
+scatter chairs everywhere anyone might possibly want one?&rdquo;</p>
 <p>&ldquo;Not if
 you want to go up stairs,&rdquo; Lola Banks said. &ldquo;Or move
 faster than a child. Or not make that dragging sound.&rdquo;</p>

@@ -11,8 +11,8 @@ tying my shirt around my stump, trying not to die.</p>
 <p>There was an awkward silence. Elaine
 said bravely, &ldquo;Welcome back.&rdquo; Kathline nodded. Jason
 glanced at my pant leg, the one that hung off the edge of my office
-chair like a flat noodle, then away. He was angry at me for provoking
-this situation, this pressure to be sympathetic.</p>
+chair like a flat noodle, then away. I think he was angry at me for
+provoking this situation, the pressure to be sympathetic.</p>
 <p>&ldquo;Thank you.&rdquo;</p>
 <p>Silence descended again. Kathline
 shuffled her feet. Elaine cleared her throat. &ldquo;If there&rsquo;s

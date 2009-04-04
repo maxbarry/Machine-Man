@@ -1,10 +1,11 @@
 <p>Page 19.</p>
 <h5>CHAPTER 
 FIVE</h5>
-<p>Kathline and
-Jason, two of my lab assistants, arrived in the Glass Room around
-eight. They were holding coffees and talking about something that was
-apparently very amusing. They saw me through the perspex and froze.</p>
+<p>My lab
+assistants Kathline and Jason arrived in the Glass Room around eight.
+They were holding coffees and talking about something that was
+apparently very amusing. They saw me through the green-tinged glass
+and froze.</p>
 <p><em>Dr. Crux?</em>
 said Kathline. I inferred this from her lip movements. I couldn&rsquo;t
 hear her because she hadn&rsquo;t toggled the intercom. I waited for

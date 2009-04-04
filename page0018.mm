@@ -10,7 +10,7 @@ time.</p>
 <p>It was getting
 late. My three lab assistants had left a long time ago. I was
 probably the last person down here. But I didn&rsquo;t feel tired. I
-looked down at my leg, the good one. Well. &ldquo;Good&rdquo; was
-probably the wrong word. I mean the one I&rsquo;d had since birth. I
-rolled up my pants and turned it this way and that. It looked fat,
-weak, and ordinary. The more I looked at it, the more it bugged me.</p>
+looked down at my leg, the good one. Well. &ldquo;Good&rdquo; was the
+wrong word. I mean the one I&rsquo;d had since birth. I rolled up my
+pants and turned it this way and that. It looked fat, and weak, and
+ordinary. The more I looked at it, the more it bugged me.</p>
