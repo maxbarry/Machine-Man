@@ -31,9 +31,9 @@ you?&rdquo; I heard her shoes sliding across the floor. &ldquo;I
 should... I should...&rdquo;</p>
 <p>&ldquo;Don&rsquo;t do that thing,&rdquo;
 said D. Peters.</p>
-<p>Her breath hitched. There came an odd
-sound, like snuffling. I tried to raise my head, to see what it was,
-but all that happened was I made a sound like: &ldquo;<em>Uguauh...</em>&rdquo;
+<p>I heard an intake of breath, then an
+odd sound, like snuffling. I tried to raise my head, to see what this
+was, but all my body managed to do was make a sound like: &ldquo;<em>Guauah...</em>&rdquo;
 </p>
 <p>There was silence.</p>
 <p>&ldquo;Oh,&rdquo; said Cassandra

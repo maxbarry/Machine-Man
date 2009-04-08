@@ -6,16 +6,16 @@ assistants Kathline and Jason arrived in the Glass Room around eight.
 They were holding coffees and talking about something that was
 apparently very amusing. They saw me through the green-tinged glass
 and froze.</p>
-<p><em>Dr. Crux?</em>
+<p><em>Dr. Neumann?</em>
 said Kathline. I inferred this from her lip movements. I couldn&rsquo;t
 hear her because she hadn&rsquo;t toggled the intercom. I waited for
-her to figure this out. &ldquo;Dr. Crux? What&rsquo;s in the
+her to figure this out. &ldquo;Dr. Neumann, what&rsquo;s in the
 syringe?&rdquo;</p>
 <p>&ldquo;Morphine.&rdquo; This came out a little muffled because I was
 holding my shirt sleeve in my teeth. But I think she understood. I
 completed the injection and let my sleeve drop. &ldquo;For the pain.&rdquo;</p>
 <p>Through the perspex, I saw Kathline and Jason share a glance. Jason
-leaned toward the microphone. &ldquo;What pain is that, Dr. Crux?&rdquo;</p>
+leaned toward the microphone. &ldquo;What pain is that, Dr. Neumann?&rdquo;</p>
 <p>I felt disappointed. These two were supposed to be amongst the
 brightest of their generation. Yet here I was standing in the Clamp
 with a syringe of morphine and they couldn&rsquo;t figure it out. &ldquo;I
@@ -33,8 +33,8 @@ it and lunged toward the Big Red Button.</p>
 powered-up, humming on standby. Its steel plates were positioned
 about&mdash;well, a foot apart. I was sitting on the edge of one. My
 right leg, the biological one, dangled between them.</p>
-<p>It was just as well I&rsquo;d taken care of all this in advance,
-because the morphine was seeping into my neurons, fogging my
-synapses. If I hadn&rsquo;t prepared, Jason might have reached the
-Big Red Button before I could activate the Clamp and crush my stupid
-meat leg to paste. But I had, and he didn&rsquo;t, and I did.</p>
+<p>It was just as well I took care of all this in advance, because the
+morphine was seeping into my neurons, fogging my synapses. If I
+hadn&rsquo;t prepared, Jason might have reached the Big Red Button
+before I could activate the Clamp and crush my leg to meat paste. But
+I had, and he didn&rsquo;t, and I did.</p>

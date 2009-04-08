@@ -12,16 +12,16 @@ I realized this was a quip. &ldquo;Right.&rdquo;</p>
 your thinking, Charlie. I&rsquo;m just not sure what benefit you get,
 in a practical sense, from a self-powered leg.&rdquo;</p>
 <p>The elevator
-doors slid open. My chair-leg rollers <em>clickety-clacked</em> over
-the uneven exit. &ldquo;Well, you&rsquo;re no longer limited by the
-body&rsquo;s energy supply.&rdquo;</p>
+doors slid open. My chair-leg rollers <em>clickety-clack</em>ed
+over the uneven exit. &ldquo;Well, you&rsquo;re no longer limited by
+the body&rsquo;s energy supply.&rdquo;</p>
 <p>&ldquo;How far
-down are we?&rdquo; Lola Banks said, eying the steel buttresses that
-reinforced the walls.</p>
+down are we?&rdquo; Lola Banks said, looking around at the steel
+buttresses that reinforced the walls.</p>
 <p>&ldquo;About a
 hundred feet. So obviously if you can install a small reactor in the
-leg, raising that energy limit from a kilojoule or so per second to,
-say, 4.2 megajoules per second, you greatly increase the functional
+leg, and raise the energy supply from around a kilojoule per second
+to, say, 4.2 megajoules per second, that increases the functional
 possibilities.&rdquo;</p>
 <p>&ldquo;Why are
 we down a hundred feet?&rdquo;</p>
@@ -30,7 +30,7 @@ something goes wrong.&rdquo; I swiped my card. The first set of doors
 to the Glass Room began to depressurize.</p>
 <p>&ldquo;Wait,&rdquo;
 said Lola Banks. &ldquo;Back up. Did you say you <em>reactor</em>?&rdquo;</p>
-<p>&ldquo;Small,&rdquo;
-I said. &ldquo;Small reactor. We build those here.&rdquo;</p>
+<p>&ldquo;Small.
+Small reactor. We build those here.&rdquo;</p>
 <p>&ldquo;What are
 you doing with a small reactor?&rdquo;</p>

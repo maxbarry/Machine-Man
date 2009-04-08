@@ -8,5 +8,6 @@ night, sweating and unable to stand the terrible crawling sensation
 in my leg that was no longer there, I held down the call button for
 as long as it took. Nine minutes later, a nurse appeared. She
 snatched the call button out of my hand and stared down at me like I
-was a stain. &ldquo;I&rsquo;m so sorry for the delay,&rdquo; she
-said. &ldquo;I was busy with the patients who want to get better.&rdquo;</p>
+was a stain. &ldquo;I&rsquo;m <em>so sorry</em> for the delay,&rdquo;
+she said. &ldquo;I was busy with the patients who want to get
+better.&rdquo;</p>
