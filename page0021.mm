@@ -12,7 +12,7 @@ too late, in a different car&mdash;the Audi came to a smoking halt
 before me.</p>
 <p>The driver leaned out the window and
 screamed abuse. This was when I saw he was shirtless. He wore mirror
-shades and chunky jewellery, which flew around as he gesticulated. He
+shades and chunky jewelery, which flew around as he gesticulated. He
 stabbed fingers in my direction to emphasize points I couldn&rsquo;t
 hear over the torrent of perfectly reproduced music pouring from his
 stereo.</p>
