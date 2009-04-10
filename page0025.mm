@@ -29,10 +29,11 @@ attempting to scan my body for trace emanations of deception.</p>
 <p>Cassandra Cautery leaned close. Something glinted in her eyes. I
 think it was greed. She looked like a kid who had just stumbled into
 the living room on Christmas morning and didn&rsquo;t dare let
-herself believe that huge present was for her.</p>
-<p>I said, &ldquo;Why? Is something going on with D. Peters?&rdquo; A
-memory surfaced in my brain, vague and indistinct, but there. &ldquo;Did
-D. Peters tell you, <em>Don&rsquo;t do that thing</em>? What thing?&rdquo;</p>
+herself believe that the huge present with the ribbon was for her.
+But I didn&rsquo;t understand where the present was.</p>
+<p>I said, &ldquo;Is something going on with D. Peters?&rdquo; A memory
+surfaced in my brain, vague and indistinct. &ldquo;Did he tell you,
+<em>Don&rsquo;t do that thing</em>? What thing?&rdquo;</p>
 <p>Cassandra Cautery kissed my forehead. &ldquo;Shhh. All I want you to
 worry about, Charlie, is getting better.&rdquo;</p>
 <p>I didn&rsquo;t say anything. I was confused by the kiss. I had gone
