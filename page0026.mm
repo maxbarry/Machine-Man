@@ -1,4 +1,4 @@
-<p>Page 25.</p>
+<p>Page 26.</p>
 <p>The doctors did not want to let me out of the hospital, which was
 funny, because the nurses couldn&rsquo;t be rid of me fast enough.
 They argued outside my room in low, strained voices. &ldquo;There&rsquo;s
@@ -10,8 +10,8 @@ don&rsquo;t I have that?&rdquo;</p>
 to interviews conducted with their lawyer present.&rdquo;</p>
 <p>The doctor sighed, like she spent all day being thwarted by idiots in
 suits, and here it was again. &ldquo;He&rsquo;s clearly unstable.&rdquo;</p>
-<p>I could hear the nurse&rsquo;s shrug. &ldquo;They want him released.
-What do I tell them?&rdquo;</p>
+<p>I could hear the nurse&rsquo;s shrug. &ldquo;They insist he be
+released. What do I tell them?&rdquo;</p>
 <p>The doctor sighed again. She was going to go home after this and sip
 red wine and stare at the wall, I could tell. She would wonder why
 she was doing this, struggling against corporate interests when all

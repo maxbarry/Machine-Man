@@ -33,7 +33,7 @@ should... I should...&rdquo;</p>
 said D. Peters.</p>
 <p>I heard an intake of breath, then an
 odd sound, like snuffling. I tried to raise my head, to see what this
-was, but all my body managed to do was make a sound like: &ldquo;<em>Guauah...</em>&rdquo;
+was, but all my body managed was a sound like: &ldquo;<em>Guauah...</em>&rdquo;
 </p>
 <p>There was silence.</p>
 <p>&ldquo;Oh,&rdquo; said Cassandra

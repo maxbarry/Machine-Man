@@ -32,19 +32,19 @@ hurting yourself.&rdquo;</p>
 <p>She put her hands
 on her hips. &ldquo;Well? What else are people meant to think?&rdquo;</p>
 <p>&ldquo;That
-I&rsquo;m improving myself! I&rsquo;m <em>augmenting</em>.
-Do people have their vision laser-corrected because they like hurting
-themselves? Is that why they pierce their ears, or... pluck their
-eyebrows? What about people who hit the gym every day, enduring
-short-term suffering in order to make their bodies to work better? Is
-there anything wrong with that? The only difference is I have access
-to better technology.&rdquo; Lola sucked in her breath, but I was too
-riled up to stop. &ldquo;And incidentally, the reason I&rsquo;m in
-pain isn&rsquo;t <em>my</em>
-fault. It&rsquo;s because the biological design of the human body is
-so conceptually flawed that the only way to make significant
-improvements is to scrap what&rsquo;s there and start over.&rdquo;</p>
-<p>I realized from
-Lola&rsquo;s expression that I had gone too far. She began to move.
-&ldquo;Wait,&rdquo; I said, but she was leaning closer, and before I
-realized what was happening, she kissed me.</p>
+I&rsquo;m improving myself! Do people get their eyes laser-corrected
+because they like hurting themselves? Is that why they pierce their
+ears? People who work out at the gym, are we worried they&rsquo;re
+suffering from some kind of psychological ailment because they&rsquo;re
+prepared to endure a little short-term suffering in order to make
+their bodies work better? The only difference between me and them is
+I have access to better technology.&rdquo; Lola sucked in her breath,
+but I was too riled up to stop. &ldquo;And, incidentally, the reason
+I have pain isn&rsquo;t <em>my</em>
+fault. It&rsquo;s because the human body is so conceptually flawed
+that the only way to make significant improvements is to scrap what&rsquo;s
+there and start over.&rdquo;</p>
+<p>From Lola&rsquo;s
+expression, I realized I had gone too far. She was moving. &ldquo;Wait,&rdquo;
+I said. &ldquo;Let me rephrase.&rdquo; But she was leaning closer.
+Before I realized what was happening, she kissed me.</p>
