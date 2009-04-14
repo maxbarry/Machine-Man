@@ -14,11 +14,11 @@ your other one?&rdquo;</p>
 told him. But like I said, I&rsquo;m socially awkward. I couldn&rsquo;t
 think how to phrase the answer, which was shock. You can only inflict
 so much trauma on the human body before important parts of it shut
-down. Or, I should say, so much trauma <em>at once</em>. You had to
+down. Or, I should say, so much trauma <em>at once</em>. You have to
 stage it, with plenty of recovery time in between. And, from a
 scheduling point of view, any time you&rsquo;re looking at a long
-series of sequential tasks containing enforced delays, you want to
-commence the first one as soon as possible. That&rsquo;s not rocket
-science. That&rsquo;s project management.</p>
-<p>But I couldn&rsquo;t say this to Carl&rsquo;s blank shades. I said,
-&ldquo;No reason.&rdquo;</p>
+series of sequential tasks, you want to commence the first one as
+soon as possible. That&rsquo;s not rocket science. That&rsquo;s
+project management.</p>
+<p>But I couldn&rsquo;t find the words for this beneath the blank stare
+of Carl&rsquo;s shades. I said, &ldquo;No reason.&rdquo;</p>
