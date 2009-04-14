@@ -8,7 +8,7 @@ said someone. It sounded like my boss, D. Peters. &ldquo;It&rsquo;s
 just a coincidence.&rdquo;</p>
 <p>&ldquo;I don&rsquo;t believe in
 coincidences.&rdquo; This was a woman, hard to place until her
-alluring, toxic scent wafted across me.</p>
+enticing, toxic scent wafted across me.</p>
 <p>&ldquo;Check the security tape,&rdquo;
 said D. Peters. &ldquo;He did it himself. There&rsquo;s no question.&rdquo;</p>
 <p>&ldquo;Hmm.&rdquo; I tried to move my
