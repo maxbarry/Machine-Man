@@ -22,10 +22,10 @@ off my leg.&rdquo; She looked confused, so I added, &ldquo;To build a
 better one.&rdquo;</p>
 <p>&ldquo;Oh,&rdquo; said Cassandra Cautery. She took back her hand.</p>
 <p>&ldquo;I hope this won&rsquo;t interfere with my work. I&rsquo;ve had
-a few new ideas this last week. Some aspects of my original design, I
-don&rsquo;t know what I was thinking.&rdquo; I laughed.</p>
-<p>Cassandra Cautery stood and gave me a look. It was an evaluative
-look. She was scanning my body for trace emanations of deception.</p>
+some new ideas this week. Some aspects of my original design, I don&rsquo;t
+know what I was thinking.&rdquo; I laughed.</p>
+<p>Cassandra Cautery gave me a look. It was an evaluative look. She was
+scanning my body for trace emanations of deception.</p>
 <p>&ldquo;Seriously,&rdquo; I said.</p>
 <p>Something glinted in her eyes. I think it was greed. She looked like
 a kid who had just stumbled into the living room on Christmas morning
@@ -35,8 +35,8 @@ present was.</p>
 <p>I said, &ldquo;Is something going on with D. Peters?&rdquo; A memory
 was surfacing in my brain, vague and indistinct. &ldquo;Did he say,
 <em>Don&rsquo;t do that thing</em>? What thing?&rdquo;</p>
-<p>Cassandra Cautery kissed my forehead. &ldquo;Shhh. All I want you to
-worry about, Charlie, is getting better.&rdquo;</p>
+<p>Cassandra Cautery stood and kissed my forehead. &ldquo;Shhh. All I
+want you to worry about, Charlie, is getting better.&rdquo;</p>
 <p>I didn&rsquo;t say anything. I was confused by the kiss. I had gone
 seven years without a kiss, and now I had two. It was the kind of
 data event that implied a serious contamination of laboratory

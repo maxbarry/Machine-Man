@@ -7,15 +7,15 @@ I had just crushed my right leg. There was nowhere else I belonged.</p>
 said someone. It sounded like my boss, D. Peters. &ldquo;It&rsquo;s
 just a coincidence.&rdquo;</p>
 <p>&ldquo;I don&rsquo;t believe in
-coincidences.&rdquo; This was a woman, hard to place until her scent
-wafted across me.</p>
+coincidences.&rdquo; This was a woman, hard to place until her
+alluring, toxic scent wafted across me.</p>
 <p>&ldquo;Check the security tape,&rdquo;
 said D. Peters. &ldquo;He did it himself. There&rsquo;s no question.&rdquo;</p>
 <p>&ldquo;Hmm.&rdquo; I tried to move my
 head, to see Cassandra Cautery, but my muscles refused to respond. A
 sun hung over my face, angry and brilliant. It looked familiar. It
-was a lab light. The problem with this was that it meant I was lying
-on the floor, bleeding to death.</p>
+was a lab light. The problem with this was it meant I was lying on
+the lab floor, bleeding to death.</p>
 <p>&ldquo;He moved,&rdquo; said D. Peters.
 &ldquo;Just then. Did you see that?&rdquo;</p>
 <p>&ldquo;You&rsquo;re panicking,&rdquo;
@@ -39,9 +39,8 @@ was, but all my body managed was a sound like: &ldquo;<em>Guauah...</em>&rdquo;
 <p>&ldquo;Oh,&rdquo; said Cassandra
 Cautery. &ldquo;Fine, then. Take him to the hospital.&rdquo;</p>
 <p>Rough hands seized me by my armpits. I
-thought I recognized the hostile fingers of Carl, the security guard
-who had carried me down here on my first day back at work. The light
-above me swung away.</p>
+thought I recognized the hostile fingers of Carl the security guard.
+The light above me swung away.</p>
 <p>&ldquo;And give him some of that
 benzo-8,&rdquo; said Cassandra Cautery. &ldquo;You know. The stuff
 that wipes memory.&rdquo;</p>
