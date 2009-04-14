@@ -2,17 +2,17 @@
 <p>Days passed and no-one visited. In this
 respect it was just like my first time in the hospital. The
 difference was now I wanted them to. Well, not <em>them</em>.
-Her. I wanted to see Lola Banks barge in through the door, her arms
-full of legs.</p>
-<p>I was tempted to
-ask the nurses to send for her. But I couldn&rsquo;t: since they had
-turned hostile, letting them know I wanted something was a strategic
-mistake. My meals were proof enough of that. But I couldn&rsquo;t
-wait, either. On the fifth day, just as I was formulating a plan
-involving dragging myself across the floor to the phone in the hall,
-Lola appeared. She was not carrying any prosthetic limbs. It was just
-her, in a too-big shirt and crooked glasses. She hung in the doorway
-like she was afraid to enter.</p>
+Her. I wanted to see Lola Banks barge through the door, her arms full
+of legs.</p>
+<p>I couldn&rsquo;t
+ask the nurses to send her; since they had turned hostile, letting
+them know I wanted something was a strategic mistake. My meals were
+proof enough of that. But I couldn&rsquo;t wait, either. On the fifth
+day, just as I was formulating a plan involving dragging myself
+across the floor to the phone in the hall, Lola appeared. She was not
+carrying any prosthetic limbs. It was just her, in a too-big shirt
+and crooked glasses. She hung in the doorway like she was afraid to
+enter.</p>
 <p>&ldquo;Hi,&rdquo; I
 said.</p>
 <p>She chewed her lip.
