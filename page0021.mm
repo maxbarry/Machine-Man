@@ -17,7 +17,7 @@ hear over the torrent of perfectly reproduced music pouring from his
 stereo.</p>
 <p>Eventually he finished, and the Viper
 swerved around me. I watched it slingshot around the next corner. It
-was lucky that nobody was coming the other way.</p>
+was lucky nobody was coming the other way.</p>
 <p>I hefted my schoolbag and continued
 walking. It occurred to me that we had, as a civilization, reached a
 milestone. We had begun making better machines than people.</p>
