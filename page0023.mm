@@ -39,9 +39,10 @@ work better? The only difference between them and me is I have access
 to better technology.&rdquo; Lola sucked in breath, but I was too
 riled up to stop. &ldquo;And I don&rsquo;t have pain because it&rsquo;s
 my <em>goal</em>. I have pain
-because it&rsquo;s an unavoidable side-effect of the human body being
-so conceptually flawed that the only way to implement significant
-improvements is to scrap what&rsquo;s there and start over.&rdquo;</p>
+because it&rsquo;s an unavoidable side-effect of the human body&rsquo;s
+design being so conceptually flawed that the only way to implement
+significant improvements is to scrap what&rsquo;s there and start
+over.&rdquo;</p>
 <p>From Lola&rsquo;s
 expression, I realized I had gone too far. She began to move. &ldquo;Wait,&rdquo;
 I said. &ldquo;Let me rephrase.&rdquo; But she was leaning closer.

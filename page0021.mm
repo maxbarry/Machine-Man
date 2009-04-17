@@ -1,9 +1,9 @@
 <p>Page 21.</p>
 <p>When I was fifteen, I was almost killed
-by a shirtless man in an Dodge Viper. He came around the corner of
-the suburban street I was crossing and accelerated toward me. I think
-he expected me to scurry out of the way. But I didn&rsquo;t, because
-I was fifteen, and it was more important to appear tough to strangers
+by a shirtless man in a Dodge Viper. He came around the corner of the
+suburban street I was crossing and accelerated toward me. I think he
+expected me to scurry out of the way. But I didn&rsquo;t, because I
+was fifteen, and it was more important to appear tough to strangers
 than live. I think the shirtless man shared this philosophy, because
 his car jagged toward me. I was sure I was about to die. I probably
 would have, if the vehicle had been anything less than a triumph of
