@@ -1,21 +1,15 @@
 <p>Page 24.</p>
 <h5>CHAPTER  SIX</h5>
-<p>I woke from dreams of being crushed to the sound of a baby crying.
-This wasn&rsquo;t unusual, because there was a intensive care
-facility for newborns down the hall. I had glanced in one day, while
-cruising the hallways in my new hospital-issue wheelchair, to see
-rows of glowing pink- and brown- skinned babies, tiny limbs flailing
-and clutching at the air inside yellow plastic incubators. Sometimes
-couples filled the chairs outside, wrapped around each other. I
-stopped going that way, though, when one man looked at me like: <em>Well,
-that puts things into perspective</em>.</p>
-<p>This baby sounded frightened. I heard another join it, then another.
-Each crying baby seemed louder than the last, until I realized they
-were just closer.</p>
-<p>Cassandra Cautery appeared in my doorway. She was wearing a snug gray
-jacket over a pinstripe shirt with a big collar, and a little skirt.
-It was a schoolgirl-meets-Wall-Street look. Her eyes glistened, as if
-she was on the verge of tears. Her lips trembled as if she couldn&rsquo;t
-keep the sympathy in.</p>
-<p>&ldquo;Oh, Charlie,&rdquo; she said. &ldquo;You poor thing.&rdquo; I
-could barely hear her, because of the screaming of the babies.</p>
+<p>I woke from dreams of being crushed to the sound of a baby wailing.
+This wasn&rsquo;t unusual, because there was an intensive care
+facility for newborns down the hall. Actually, the dream wasn&rsquo;t
+unusual, either. Ever since I deliberately crushed my right leg, my
+brain had been drowning me in dreams of being trapped in tiny,
+shrinking spaces. I think it was fighting back. It was telling me
+that it did not want to lose any more pieces. I found this annoying.
+It was like the pain in my legs: a defensive mechanism deployed
+against me by my own body. What my body needed to realize was that I
+wasn&rsquo;t taking orders from organs. My biology existed in order
+to serve me, not the other way around. These self-interested clumps
+of flesh and fluid, they had better get with the program, because if
+it came down to them or me, it was going to be me.</p>

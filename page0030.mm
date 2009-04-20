@@ -1,33 +1,24 @@
 <p>Page 30.</p>
-<p>It was five weeks before I heard from Lola Banks. I tried to call
-her, many times. But the hospital was not an authorized number, so I
-had to ask reception to connect me, and whenever they did, it rang
-out. I began to suspect that reception was being deliberately
-obstructive. Finally I jury-rigged a packet-disguised VoIP connection
-from my workstation, and sure enough, when I did that, the hospital
-switch answered right away.</p>
-<p>&ldquo;Charlie!&rdquo; said Lola. She sounded robotic, because my
-computer was untangling her audio from a data stream that otherwise
-looked like a really long joke email. But there was unmistakable
-delight in her voice, and I felt relief. It had been a month and <em>she</em>
-hadn&rsquo;t called <em>me</em>; I had begun to think I must have
-kissed her the wrong way, or she&rsquo;d grown embarrassed about it,
-or something. I don&rsquo;t know. &ldquo;I&rsquo;ve been calling and
-calling!&rdquo;</p>
-<p>&ldquo;You have?&rdquo;</p>
-<p>&ldquo;Yes! They always tell me you&rsquo;re busy and I have to leave
-a message.&rdquo;</p>
-<p>&ldquo;Oh,&rdquo; I said. &ldquo;That&rsquo;s weird.&rdquo;</p>
-<p>&ldquo;And I called your home. But then your answering machine got
-full. Are you screening?&rdquo;</p>
-<p>&ldquo;No. I just haven&rsquo;t been home.&rdquo;</p>
-<p>&ldquo;Since when?&rdquo;</p>
-<p>I thought about this. &ldquo;March.&rdquo;</p>
-<p>There was silence. &ldquo;I think you need to get out of there,
-Charlie.&rdquo;</p>
-<p>&ldquo;Why?&rdquo; I went to scratch my cheek and missed. I looked at
-my hand. I wasn&rsquo;t wearing my index finger, that was why.</p>
-<p>&ldquo;I just think it would be a good idea.&rdquo;</p>
-<p>&ldquo;Well... okay.&rdquo;</p>
-<p>&ldquo;I&rsquo;m going to give you an address,&rdquo; Lola said, and
-I reached for a pen, with the hand that had fingers.</p>
+<p>Carl the security guard in the back of the limo with me, on the seat
+opposite. His eyes were obscured by black sunglasses, so I couldn&rsquo;t
+tell if he was staring at me. But it felt like he was.</p>
+<p>&ldquo;You lied,&rdquo; Carl said. I jumped, because I had never
+heard Carl speak before. It was like hearing a voice from of a
+refrigerator. &ldquo;You told that nurse you had prosthetics, plural.
+You don&rsquo;t. You have one.&rdquo;</p>
+<p>I felt uncomfortable. I tried to cross my legs, then remembered.</p>
+<p>&ldquo;You&rsquo;re meant to be smart,&rdquo; said Carl. &ldquo;Why
+didn&rsquo;t you wait until you had two metal legs before you cut off
+your other one?&rdquo;</p>
+<p>I looked out the window. Later, I came to regret this. I should have
+told him. But like I said, I&rsquo;m socially awkward. I couldn&rsquo;t
+think how to phrase the answer, which was shock. You can only inflict
+so much trauma on the human body before important parts of it shut
+down. Or, I should say, so much trauma <em>at once</em>. You have to
+stage it, with plenty of recovery time in between. And, from a
+scheduling point of view, any time you&rsquo;re looking at a long
+series of sequential tasks, you want to commence the first one as
+soon as possible. That&rsquo;s not rocket science. That&rsquo;s
+project management.</p>
+<p>But I couldn&rsquo;t find the words for this beneath the blank stare
+of Carl&rsquo;s shades. I said, &ldquo;No reason.&rdquo;</p>

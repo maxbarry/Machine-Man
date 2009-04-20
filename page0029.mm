@@ -1,33 +1,27 @@
 <p>Page 29.</p>
 <h5>CHAPTER  SEVEN</h5>
-<p>Carl opened the limo door and I emerged into bright sunshine to two
-dozen Better Future employees lining the path to the lobby. When they
-saw me, they began to clap. Carl lifted me into a gleaming
-wheelchair; there were cheers. As Carl pushed me past the crowd, some
-put out hands for high-fives. I saw a woman from Human Resources who
-had never made eye contact with me before, ever, and as I passed she
-whispered, &ldquo;You&rsquo;re an inspiration.&rdquo; I didn&rsquo;t
-understand what was happening.</p>
-<p>Inside the lobby, Cassandra Cautery was waiting with folded arms and
-gleaming eyes. &ldquo;Welcome back.&rdquo; Her voice was choked with
-emotion, as if I were her son returned from war.</p>
-<p>&ldquo;Thanks,&rdquo; I said.</p>
-<p>She stayed alongside as Carl steered me through security. The steel
-wheelchair didn&rsquo;t set off any alarms, which was interesting. Or
-maybe they did, but the guards were under instruction to ignore it.
-&ldquo;I&rsquo;ve taken the liberty of expanding your staff. What do
-you think of that Jason Huong? I left him, in case he&rsquo;s a
-favorite, but really, his metrics are average.&rdquo;</p>
-<p>&ldquo;Jason&rsquo;s okay.&rdquo;</p>
-<p>She put a hand on my shoulder. Carl took the hint and stopped
-pushing. Cassandra Cautery looked deep into my eyes. She was so
-short, we were almost level. &ldquo;It would be no problem to get rid
-of him. Permanently.&rdquo;</p>
-<p>&ldquo;Jason&rsquo;s fine,&rdquo; I said.</p>
-<p>Cassandra Cautery nodded. She was still holding my shoulder. &ldquo;I
-just don&rsquo;t want anything to get in your way.&rdquo;</p>
-<p>&ldquo;In the way of building prosthetic legs.&rdquo; I felt it was
-important to clarify.</p>
-<p>Cassandra Cautery&rsquo;s hand tightened on my shoulder. &ldquo;Yes,&rdquo;
-she said. &ldquo;Or furthering your project in any way that makes
-sense to your beautiful, brilliant mind.&rdquo;</p>
+<p>A nurse wheeled me out of the hospital to the limo waiting outside.
+On my lap was a ziplock bag full of medicines. This was a little
+superfluous, given the facilities we had at Better Future, but I
+didn&rsquo;t complain. You don&rsquo;t say no to a bag full of drugs.
+Even I knew that.</p>
+<p>Carl, the security guard who hated me, stood beside the limo&rsquo;s
+open door, his hands folded. I don&rsquo;t know why the company kept
+assigning me Carl. It wasn&rsquo;t like we didn&rsquo;t have other
+security personnel. Carl saw us coming but didn&rsquo;t move. He
+would probably stand there impassively while I tried to claw and
+heave my way into the limo.</p>
+<p>&ldquo;Thanks for taking care of me,&rdquo; I said to the nurse. &ldquo;I
+use the word <em>care</em> loosely.&rdquo; I hadn&rsquo;t meant to
+bitch. I was misdirecting my annoyance at Carl. 
+</p>
+<p>&ldquo;You&rsquo;re welcome,&rdquo; she said. &ldquo;I hope we never
+see you again.&rdquo;</p>
+<p>We reached the limo. Carl bent down and scooped me up. I had maligned
+him unfairly. I felt bad. &ldquo;Wait,&rdquo; I said to the nurse. &ldquo;I
+want to explain something. I know you think I&rsquo;m mentally ill.
+But I didn&rsquo;t crush my leg for no reason. I did it because my
+work gives me access to prosthetics that are faster, stronger, and
+all-round superior to biological limbs.&rdquo;</p>
+<p>Her lips parted in surprise. &ldquo;Well,&rdquo; she said, &ldquo;that&rsquo;s
+<em>unfair</em>.&rdquo;</p>
