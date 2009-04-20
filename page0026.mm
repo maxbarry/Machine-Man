@@ -27,7 +27,7 @@ know what I was thinking.&rdquo; I laughed.</p>
 <p>Cassandra Cautery gave me a look. It was an evaluative look. She was
 scanning my body for trace emanations of deception.</p>
 <p>&ldquo;Seriously,&rdquo; I said.</p>
-<p>Something glinted in her eyes. I think it was greed. She looked like
+<p>Something gleamed in her eyes. I think it was greed. She looked like
 a kid who had just stumbled into the living room on Christmas morning
 and didn&rsquo;t dare let herself believe that the huge present with
 the ribbon was for her. But I didn&rsquo;t understand where the

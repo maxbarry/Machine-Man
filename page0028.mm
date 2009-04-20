@@ -23,6 +23,5 @@ she was doing this, struggling against commercial interests at a
 corporate hospital when all she wanted to do was help people, and in
 the morning, when she walked out of her beautiful home and unlocked
 her sports car, she would remember.</p>
-<p>&ldquo;Tell
-them,&rdquo; she said, &ldquo;I strongly advise he be kept away from
-industrial-grade cutting or stamping equipment.&rdquo;</p>
+<p>&ldquo;Tell them,&rdquo; she said, &ldquo;I strongly advise he be
+kept away from industrial-grade cutting or stamping equipment.&rdquo;</p>
