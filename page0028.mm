@@ -5,11 +5,10 @@ They argued outside my room in low, strained voices. &ldquo;There&rsquo;s
 nothing wrong with him,&rdquo; a nurse said. &ldquo;We need that
 bed.&rdquo;</p>
 <p>&ldquo;I still need a psych evaluation,&rdquo; said the doctor. &ldquo;He&rsquo;s
-on suicide watch, for God&rsquo;s sake. Why don&rsquo;t I have
-something from psych?&rdquo;</p>
+on suicide watch, why don&rsquo;t I have something from psych?&rdquo;</p>
 <p>&ldquo;His company won&rsquo;t consent to a psychological profile.
 They say his state of mind is commercial-in-confidence.&rdquo;</p>
-<p>&ldquo;Then who put him on suicide watch?&rdquo;</p>
+<p>&ldquo;Then who put him on the watch?&rdquo;</p>
 <p>&ldquo;His company. They specifically requested no visitors. And they
 want him released into their care right away.&rdquo;</p>
 <p>The doctor sighed, like she spent all day being thwarted by
