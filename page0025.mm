@@ -1,7 +1,7 @@
 <p>Page 25.</p>
-<p>But I digress. I was talking about the crying baby that woke me up. I
-discovered this infant care ward while cruising the hallways in my
-new hospital-issue wheelchair; I glanced inside a room to see rows of
+<p>But I digress. I was talking about the crying baby that woke me. I
+discovered the infant care ward while cruising the hallways in my new
+hospital-issue wheelchair; I glanced inside a room to see rows of
 glowing pink- and brown- skinned babies, tiny limbs flailing and
 clutching at the air inside yellow plastic incubators. Couples filled
 the chairs, wrapped around each other. I stopped going that way,
