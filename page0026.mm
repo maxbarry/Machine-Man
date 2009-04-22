@@ -20,7 +20,7 @@ forward. &ldquo;It&rsquo;s Dick, isn&rsquo;t it?&rdquo;</p>
 <p>&ldquo;Oh,&rdquo; I said. &ldquo;D. Peters? No, I just wanted to cut
 off my leg.&rdquo; Cassandra Cautery looked confused, so I added, &ldquo;To
 build a better one.&rdquo;</p>
-<p>&ldquo;Oh,&rdquo; she said. She took back her hand.</p>
+<p>She took back her hand. &ldquo;Oh.&rdquo;</p>
 <p>&ldquo;I hope this won&rsquo;t interfere with my work. I&rsquo;ve had
 some new ideas. Some aspects of my original design, I don&rsquo;t
 know what I was thinking.&rdquo; I laughed.</p>
