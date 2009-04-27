@@ -18,11 +18,11 @@ snipe. I was misdirecting my annoyance at Carl.
 <p>&ldquo;You&rsquo;re welcome,&rdquo; she said. &ldquo;I hope we never
 see you again.&rdquo;</p>
 <p>Carl bent down and scooped me up. I had maligned him unfairly.
-&ldquo;Wait,&rdquo; I said to the nurse. &ldquo;Let me explain
-something. I didn&rsquo;t crush my leg because I hate myself. I did
-it because I have access to prosthetics that are faster, stronger,
-and all-round superior to biological parts.&rdquo; I saw surprise
-spread across her face. &ldquo;You see? It&rsquo;s not mental
-illness. It&rsquo;s just logical self-improvement.&rdquo;</p>
+&ldquo;Wait,&rdquo; I said. I wanted to explain something to the
+nurse. &ldquo;I didn&rsquo;t crush my leg because I hate myself. I
+did it because I have access to prosthetics that are stronger,
+faster, and all-round superior to biological parts.&rdquo; I saw
+surprise spread across her face. &ldquo;You see? It&rsquo;s not
+mental illness. It&rsquo;s just logical self-improvement.&rdquo;</p>
 <p>Her expression hardened. It was like she hated me more than ever.
 &ldquo;Well, that is unfair,&rdquo; she said.</p>
