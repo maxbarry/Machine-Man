@@ -1,19 +1,38 @@
 <p>Page 35.</p>
-<p>My legs stopped at a busy intersection somewhere south of downtown. I
-didn&rsquo;t know where, exactly. All I knew was they had been
-running for ten minutes and I had been hanging on, begging them not
-to run me under a bus. The Contours, like all my legs, had been
-subjected to some pretty rigorous quality assurance, but even so, I
-hadn&rsquo;t planned on conducting their first live field test while
-strapped to the top of them. I had faith in technology, but I didn&rsquo;t
-expect it to be bug-free. Not ever.</p>
-<p>I had gotten some pretty alarmed looks over the last ten minutes, and
-some screaming and fleeing out of the way, but now, as I stood
-swaying and sweating on the corner, people barely glanced at me. A
-woman with her young son put one hand on his shoulder to steer him
-away from me; that was all. I realized my tie hung over my shoulder
-like a tongue, my shirt was dripping, my jacket hanging half-off one
-arm. I looked like a hobo. And I started to laugh, a crazy,
-high-pitched sound I couldn&rsquo;t control, because my legs had
-stopped, and the world was getting back to normal, and that had been
-the most out-of-control freaking ten minutes of my life.</p>
+<p>I was going to fly off my legs like a rodeo rider. Each stride of the
+Contours, I was sure my head was about to pop off my ridiculously
+stretched neck, and when each foot slammed down, my chin hit my chest
+hard enough to crack teeth. Through eyes blurred with tears, I saw a
+busy street approaching and thought: <em>Oh thank God they will stop.</em>
+But they didn&rsquo;t: they ran into the traffic. A sports car&mdash;a
+Dodge Viper?&mdash;whipped by so close its turbulence tore at my
+hair. Then I was in the next lane, a truck the size of a building
+bearing down. I heard a shriek, and realized it was me. There was a
+clicking deep within the Contours, something I felt rather than
+heard, and they stopped. I was about to die, I realized. I was about
+to learn why you didn&rsquo;t conduct the first live field test of
+new technology while strapped to the top of it. This truck would run
+over the top of me, and when it stopped and the driver climbed out,
+he would find a long bloody smear leading to a gleaming, undamaged
+pair of titanium legs. It would be the ultimate vindication of my
+work, proving beyond all doubt the superiority of artificial body
+parts. But also the need for comprehensive bug-testing.</p>
+<p>The legs bent and sprang. I screamed like a child. The truck,
+traffic, and road grew small and far away. I let go of the seat to
+flail my arms, as if I could grab the air somehow, or fly. My upward
+velocity slowed, and then for the briefest moment I was flying,
+moving leisurely forward sixty feet above the ground. It was kind of
+beautiful. Then I began to fall. The world grew rapidly larger and
+more dangerous. As it rushed toward me, my brain informed me: <em>Forty
+miles per hour, an object dropped from sixty feet has a final
+velocity of forty miles per hour</em>, and that was not helping.</p>
+<p>On the sidewalk below, a woman and her young son stood gaping at me,
+this strange man falling from the sky. At first it seemed a terrible
+coincidence, these two standing where I was about to intersect the
+ground, and then I realized it was not. To my legs, these people were
+cushioning: physical objects that could help absorb the shock of my
+impact. I had not programmed them to distinguish between people and
+things. They would avoid collisions with things on a horizontal
+plane, but anything lower than they were was an exeption: considered
+to be ground. It had seemed a reasonable assumption at the time, in
+the lab.</p>

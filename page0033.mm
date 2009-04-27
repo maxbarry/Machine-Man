@@ -1,5 +1,5 @@
 <p>Page 33.</p>
-<p>Before I went out to meet Lola Banks for lunch, I stopped by the
+<p>Before I left to meet Lola Banks for lunch, I stopped by the
 Repository to get to dressed. I had a lot of legs in there, and some
 fingers, and a hand that wasn&rsquo;t very practical but I liked too
 much to scrap. It could crush bricks. The impractical part was it
