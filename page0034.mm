@@ -7,18 +7,18 @@ lobby, there were four of them, and another two moving to block the
 glass doors. Carl was there, of course. Carl was everywhere. &ldquo;Can
 I help you, Dr. Neumann?&rdquo;</p>
 <p>My legs were already detouring around him, and it was few moments
-before I could persuade them to stop. They were a little fiesty. But
-finally I came to a juddering halt. Quiet fell. The receptionist had
-vanished, I noticed. The entire lobby had emptied, but for me and the
-guards. &ldquo;I&rsquo;m going out.&rdquo;</p>
+before I could persuade them to stop. They were fiesty. But finally I
+came to a juddering halt. Quiet fell. The receptionist had vanished,
+I noticed. The entire lobby had emptied, but for me and the guards.
+&ldquo;I&rsquo;m going out.&rdquo;</p>
 <p>&ldquo;Where would you like to go, sir? We&rsquo;ll escort you.&rdquo;</p>
 <p>&ldquo;That&rsquo;s kind of you, Carl,&rdquo; I said. &ldquo;But I
 have my own transport, thanks.&rdquo;</p>
 <p>His eyes slipped to my legs. The Contours were beneath my jeans, but
 they were longer than my old legs, and I hadn&rsquo;t been able to
 quite pull my socks over a six-inch strip of gleaming titanium. On
-the plus side, I was really tall. &ldquo;I&rsquo;m sorry, sir. But I
-must insist.&rdquo;</p>
+the plus side, I was really tall. &ldquo;I&rsquo;m sorry, Dr.
+Neumann. But I have to insist.&rdquo;</p>
 <p>I thought: <em>I should just walk out of here</em>. Because it wasn&rsquo;t
 like they could stop me. I honestly didn&rsquo;t mean to express this
 as a mental instruction, of the kind the Contours were supposed to

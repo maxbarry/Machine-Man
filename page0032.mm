@@ -10,19 +10,19 @@ switch answered right away.</p>
 computer was untangling her audio from a data stream that otherwise
 looked like a really long joke email. But there was unmistakable
 delight in her voice, and I felt relief. It had been a month and <em>she</em>
-hadn&rsquo;t called <em>me</em>; I had begun to think I must have
-kissed her the wrong way, or she&rsquo;d grown embarrassed about it,
+hadn&rsquo;t called <em>me</em>; I&rsquo;d started thinking I must have
+kissed her the wrong way, or she&rsquo;d changed her mind about me,
 or something. I don&rsquo;t know. &ldquo;I&rsquo;ve been calling and
 calling!&rdquo;</p>
 <p>&ldquo;You have?&rdquo;</p>
 <p>&ldquo;Yes! They always tell me you&rsquo;re busy and I have to leave
 a message.&rdquo;</p>
 <p>&ldquo;Oh,&rdquo; I said. &ldquo;That&rsquo;s weird.&rdquo;</p>
-<p>&ldquo;And I called your home. But then your answering machine got
-full. Are you screening?&rdquo;</p>
+<p>&ldquo;And I called your home, but then your answering machine filled
+up. Are you screening?&rdquo;</p>
 <p>&ldquo;No. I just haven&rsquo;t been home.&rdquo;</p>
 <p>&ldquo;Since when?&rdquo;</p>
-<p>I thought about this. &ldquo;March.&rdquo;</p>
+<p>I had to think about this. &ldquo;March.&rdquo;</p>
 <p>There was silence. &ldquo;I think you need to get out of there,
 Charlie.&rdquo;</p>
 <p>&ldquo;Why?&rdquo; I went to scratch my cheek and missed. I looked at
