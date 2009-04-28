@@ -3,7 +3,7 @@
 opposite me. His eyes were obscured by black sunglasses, so I
 couldn&rsquo;t tell if he was staring. But it felt like he was.</p>
 <p>&ldquo;You lied,&rdquo; Carl said. I jumped, because I had never
-heard Carl speak before. It was like hearing a voice from of a
+heard Carl speak before. It was like hearing a voice from a
 refrigerator. &ldquo;You told that nurse you had prosthetics, plural.
 You don&rsquo;t. You have one.&rdquo;</p>
 <p>I felt uncomfortable. I tried to cross my legs, then remembered.</p>
