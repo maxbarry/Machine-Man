@@ -9,13 +9,13 @@ eye contact with me before, not once, and as I passed she whispered,
 what was happening.</p>
 <p>Inside the lobby, Cassandra Cautery waited with folded arms and wet
 eyes. &ldquo;Welcome back.&rdquo; Her voice was choked with emotion,
-like I was her son, just returned from war.</p>
+like I was her son, returned from war.</p>
 <p>&ldquo;Thanks,&rdquo; I said.</p>
 <p>She walked alongside as Carl steered me through security. The
-wheelchair didn&rsquo;t seem to set off any alarms, which was odd. Or
-maybe they did, but the guards had been instructed to let me through.
+wheelchair didn&rsquo;t set off any alarms, which was odd. Or maybe
+it did, but the guards had been instructed to let me through anyway.
 &ldquo;I&rsquo;ve taken the liberty of expanding your staff. What do
-you think of that Jason Huong? I left him, in case he&rsquo;s a
+you think of that Jason Huang? I left him, in case he&rsquo;s a
 favorite, but really, his metrics are average.&rdquo;</p>
 <p>&ldquo;Jason&rsquo;s okay.&rdquo;</p>
 <p>She put a hand on my shoulder. Carl took the hint and stopped

@@ -27,8 +27,7 @@ opinion, to get angry when your brain
 floods with vasopressin. That&rsquo;s just what happens. You drop a
 glass, it falls toward the Earth; maybe that&rsquo;s not the outcome
 you want, but you can&rsquo;t blame the glass.</p>
-<p>Still,
-I am disturbed by the idea that I&rsquo;m surrounded by polite,
-smiling men and women one seratonin dip away from savagery. I&rsquo;m
-not saying it&rsquo;s anyone&rsquo;s fault. I&rsquo;m just saying I
-think that situation can be improved.</p>
+<p>Still, I am disturbed by the idea that I&rsquo;m surrounded by
+polite, smiling men and women one seratonin dip away from savagery.
+I&rsquo;m not saying it&rsquo;s anyone&rsquo;s fault. I&rsquo;m just
+saying I think that situation can be improved.</p>
