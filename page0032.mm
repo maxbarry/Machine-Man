@@ -1,33 +1,34 @@
 <p>Page 32.</p>
-<p>It was five weeks before I heard from Lola Banks. I tried to call
-her, many times. But the hospital was not an authorized number, so I
-had to ask reception to connect me, and whenever they did, it rang
-out. I began to suspect that reception was being deliberately
-obstructive. Finally I jury-rigged a packet-disguised VoIP connection
-from my workstation, and sure enough, when I did that, the hospital
-switch answered right away.</p>
-<p>&ldquo;Charlie!&rdquo; said Lola. She sounded robotic, because my
-computer was untangling her audio from a data stream that otherwise
-looked like a really long joke email. But there was unmistakable
-delight in her voice, and I felt relief. It had been a month and <em>she</em>
-hadn&rsquo;t called <em>me</em>; I&rsquo;d started thinking I must have
-kissed her the wrong way, or she&rsquo;d changed her mind about me,
-or something. I don&rsquo;t know. &ldquo;I&rsquo;ve been calling and
-calling!&rdquo;</p>
-<p>&ldquo;You have?&rdquo;</p>
-<p>&ldquo;Yes! They always tell me you&rsquo;re busy and I have to leave
-a message.&rdquo;</p>
-<p>&ldquo;Oh,&rdquo; I said. &ldquo;That&rsquo;s weird.&rdquo;</p>
-<p>&ldquo;And I called your home, but then your answering machine filled
-up. Are you screening?&rdquo;</p>
-<p>&ldquo;No. I just haven&rsquo;t been home.&rdquo;</p>
-<p>&ldquo;Since when?&rdquo;</p>
-<p>I had to think about this. &ldquo;March.&rdquo;</p>
-<p>There was silence. &ldquo;I think you need to get out of there,
-Charlie.&rdquo;</p>
-<p>&ldquo;Why?&rdquo; I went to scratch my cheek and missed. I looked at
-my hand. I wasn&rsquo;t wearing my index finger, that was why.</p>
-<p>&ldquo;I just think it would be a good idea.&rdquo;</p>
-<p>&ldquo;Well... okay.&rdquo;</p>
-<p>&ldquo;I&rsquo;m going to give you an address,&rdquo; Lola said, and
-I reached for a pen, with the hand that had fingers.</p>
+<p>I don&rsquo;t want to sound weird, but don&rsquo;t you think there is
+something seriously wrong with people? I mean, there is, obviously:
+you hear these terrible stories where the father just snaps, and you
+know that guy was broken. Something happened in his head, some
+leakage, and what spilled out was beyond comprehension. Everyone
+agrees on this. They ask if you heard about that man and those poor
+boys, and they say, <em>You just can&rsquo;t understand it, can you?</em></p>
+<p>It&rsquo;s the look they give you then that bothers me. I am not a
+great reader of people, so at first I thought I was misinterpreting
+it. But now I&rsquo;m pretty sure. <em>Can you?</em> It&rsquo;s a real
+question. There&rsquo;s only one answer, of course: you shake your
+head, say, <em>It&rsquo;s unbelievable</em>. But they watch you
+carefully, for what you really think.</p>
+<p>I have two theories on this. The first is they suspect you, too, may
+be broken: that your brain contains fissures. That, under the right
+circumstances, you might do something unbearable. They want to know
+if they ought to take precautions.</p>
+<p>The second is they think they might. And what they&rsquo;re looking
+for is a sign they&rsquo;re not alone. Because sometimes, when
+they&rsquo;re humiliated by their boss or the baby won&rsquo;t stop
+howling, the red thoughts that burst inside their brain, they&rsquo;re
+really horrific.</p>
+<p>I
+don&rsquo;t blame anyone. It&rsquo;s not a personal failing, in my
+opinion, to get angry when your brain
+floods with vasopressin. That&rsquo;s just what happens. You drop a
+glass, it falls toward the Earth; maybe that&rsquo;s not the outcome
+you want, but you can&rsquo;t blame the glass.</p>
+<p>Still,
+I am disturbed by the idea that I&rsquo;m surrounded by polite,
+smiling men and women one seratonin dip away from savagery. I&rsquo;m
+not saying it&rsquo;s anyone&rsquo;s fault. I&rsquo;m just saying I
+think that situation can be improved.</p>

@@ -1,20 +1,20 @@
 <p>Page 37.</p>
-<p>My legs stopped at a busy intersection somewhere south of downtown. I
-didn&rsquo;t know where, exactly. All I knew was they had been
-running for ten minutes and I had been hanging on, begging them not
-to kill me. Like all my legs, the Contours had been subjected to some
-pretty rigorous quality assurance in the lab, but some things you
-couldn&rsquo;t simulate. One of those things, apparently, was that
-mortal terror made it hard for the legs to understand mental
-instructions. At least, I hope that&rsquo;s what it was. The
-alternative was that they were wilful.</p>
-<p>I had gotten a lot of alarmed looks over the last ten minutes, and
-some screaming and fleeing, but now, as I stood swaying and sweating
-on the street corner, passers-by barely glanced at me. A man put his
-hand on his wife&rsquo;s shoulder to steer her away from me; that was
-all. I realized that with my tie hanging over my shoulder like a
-tongue, my shirt dripping with sweat, my pants almost shredded and my
-jacket gray with concrete dust, I looked like a hobo. And I started
-to laugh, because that was a very normal thing to be, and my legs had
-stopped, and that had been the most out-of-control freaking ten
-minutes of my life.</p>
+<p>The mother yanked her son&rsquo;s arm. This kid was no toddler: he
+was seven or eight. I have seen women wrestling with children of this
+age before, in supermarket aisles and parking lots, and usually the
+kids don&rsquo;t budge. But apparently a man plummeting out of the
+sky like a missile aimed at their hearts changed everything, because
+when the mother pulled this kid&rsquo;s arm, he flew through the air
+like he was hollow. It really was a convincing example of the
+strength-boosting properties of adrenaline.</p>
+<p>My legs could not correct my flight path, and thus were forced to
+abandon their original plan to use the boy and his mother as shock
+absorbers. I impacted the sidewalk beside them. The concrete split
+beneath my feet. Dust burst into the air. My spine bent in a way that
+felt very, very wrong. I lost my breath, then sucked in a lungful of
+dust. I felt the legs moving beneath me, and tried to tell them to
+wait up a second, because I had to apologize to the mother, to make
+sure she and her son were okay, and so was I. But the legs didn&rsquo;t
+care. Their world was defined by a location and a destination and the
+optimum path between the two. Everything else was a waste of time. So
+off we went again.</p>
