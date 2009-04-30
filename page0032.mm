@@ -21,15 +21,14 @@ for is a sign they&rsquo;re not alone. Because sometimes, when
 they&rsquo;re humiliated by their boss or the baby won&rsquo;t stop
 howling, the red thoughts that burst inside their brain, they&rsquo;re
 really horrific.</p>
-<p>I
-don&rsquo;t blame anyone. It&rsquo;s not a personal failing, in my
+<p>I don&rsquo;t blame anyone. It&rsquo;s not a personal failing, in my
 opinion, to feel violent when your brain floods with vasopressin.
 That&rsquo;s just what happens. You drop a glass, it falls toward the
 Earth; maybe that&rsquo;s not the outcome you want, but don&rsquo;t
 blame the glass. Don&rsquo;t pass moral judgment because cause
-produced effect. Because stimulus provoked response. That&rsquo;s
-just how it works.</p>
+produced effect. Because stimulus provoked response. That&rsquo;s how
+it works.</p>
 <p>Still, I am disturbed by the idea that I&rsquo;m surrounded by
-polite, smiling men and women one seratonin dip away from savagery.
+polite, smiling men and women one serotonin dip away from savagery.
 I&rsquo;m not saying it&rsquo;s anyone&rsquo;s fault. I&rsquo;m just
 saying I think that situation can be improved.</p>

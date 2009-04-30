@@ -16,5 +16,5 @@ all. I realized that with my tie hanging over my shoulder like a
 tongue, my shirt dripping with sweat, my pants almost shredded and my
 jacket gray with concrete dust, I looked like a hobo. And I started
 to laugh, because that was a very normal thing to be, and my legs had
-stopped, and that had been the most out-of-control freaking ten
-minutes of my life.</p>
+stopped and I was still alive, and that had been the most
+out-of-control freaking ten minutes of my life.</p>
