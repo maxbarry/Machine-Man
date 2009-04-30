@@ -18,6 +18,6 @@ under jeans. They were also heavy, and noisy, and vented gases.</p>
 the irony of the situation. The first time I met Lola, at the
 hospital, I told her I didn&rsquo;t care about a natural look. But
 here I was climbing into a set of legs chosen precisely because they
-were least likely to make people recoil in horror. I was becoming
+were least likely to cause people to recoil in horror. I was becoming
 aware of social niceties. If this kept up, soon I would be totally
 normal.</p>
