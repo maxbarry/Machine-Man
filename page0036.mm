@@ -18,19 +18,17 @@ superiority of artificial body parts. But also the need for
 comprehensive bug-testing.</p>
 <p>The legs bent and sprang. I screamed like a child. The truck,
 traffic, and road grew small and far away. I let go of the seat to
-flail my arms, as if I could grab the air somehow, or fly. My upward
-velocity slowed, and then for the briefest moment I was flying,
-moving leisurely forward sixty feet above the ground. It was kind of
-beautiful. Then I began to fall. The world grew rapidly larger and
-more dangerous. As it rushed toward me, my brain informed me: <em>Forty
-miles per hour, an object dropped from sixty feet has a final
-velocity of forty miles per hour</em>. That was not helping.</p>
-<p>On the sidewalk below, a woman and her young son gaped up at me, this
-strange man falling from the sky. At first it seemed a terrible
-coincidence, these two standing right where I was about to land, and
-then I realized it wasn&rsquo;t. It was planned. My legs saw these
-people as cushioning: physical objects that could help absorb the
-shock of my impact. I had programmed them to avoid collisions on a
-horizontal plane, but anything lower than they were was fair game:
-considered to be ground. It had seemed a reasonable assumption at the
-time, in the lab.</p>
+flail my arms, as if I could grab the air, or fly. My upward velocity
+slowed, and for the briefest moment I was flying, moving leisurely
+forward sixty feet above the ground. It was kind of beautiful. Then I
+began to fall. The world grew larger and more dangerous. As it rushed
+toward me, my brain reckoned my terminal velocity at forty miles per
+hour: that was how fast I would be going when I hit the sidewalk.</p>
+<p>Below, a woman and her young son gaped up at me. At first it seemed a
+terrible coincidence, them standing at the exact point I was destined
+to intersect the sidewalk. Then I realized it wasn&rsquo;t. It was
+calculated. My legs saw these people as cushioning: physical objects
+that could help absorb the shock of impact. I had programmed them to
+avoid collisions on a horizontal plane, but anything lower than they
+were was considered ground. It had seemed a reasonable assumption at
+the time, in the lab.</p>
