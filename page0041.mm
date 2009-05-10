@@ -13,4 +13,4 @@ security personnel.</p>
 <p>&ldquo;I think&mdash;&rdquo; I said, but that was all I managed
 before they burst into the cafe, and people began to scream and
 overturn tables. Carl yelled at me to <em>let go of that woman, right
-now</em>, and then things started to go bad.</p>
+now</em>. Then things went bad.</p>

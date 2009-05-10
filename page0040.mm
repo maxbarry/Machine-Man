@@ -6,7 +6,7 @@ interact with people just for the pleasure of it.</p>
 <p>&ldquo;Hi.&rdquo; Her cheeks reddened. The cafe patrons were staring
 at us. She bit her lip. &ldquo;Take a seat.&rdquo;</p>
 <p>&ldquo;No need.&rdquo; I concentrated, and the Contours began to
-retract. Soon I was four foot tall. &ldquo;I&rsquo;m already in one.&rdquo;</p>
+retract. Soon I was four foot tall. &ldquo;I&rsquo;m in one.&rdquo;</p>
 <p>Lola&rsquo;s mouth formed an O. It was very cute. I felt proud, to be
 the cause of that O. Then she closed it, and swallowed. &ldquo;Did
 you... make it here okay?&rdquo;</p>
@@ -19,7 +19,7 @@ issues.&rdquo;</p>
 Lola inhaled. &ldquo;Well&mdash;when I say <em>legs</em>, I mean
 transports. Most are tracks. One is a kind of drill.&rdquo;</p>
 <p>&ldquo;Why is one a kind&mdash;&rdquo;</p>
-<p>&ldquo;I don&rsquo;t know.&rdquo; I laughed, giddy. &ldquo;The
+<p>&ldquo;I don&rsquo;t know.&rdquo; I laughed. I felt giddy. &ldquo;The
 company gave me carte blanche and I got carried away.&rdquo;</p>
 <p>Lola&rsquo;s eyes stopped on my fingers. I had meant to keep that
 hand out of sight. But I was nervous, and it had started fiddling

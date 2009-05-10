@@ -1,15 +1,27 @@
 <p>Page 39.</p>
 <h5>CHAPTER 
 NINE</h5>
-<p>The place Lola Banks had arranged to meet turned out to be an
-upmarket cafe. It had smoked glass and a deep green awning and
-wrought iron furniture out on the sidewalk. I felt a twinge of doubt
-about my ability to navigate this place without creating a scene.
-Then I saw Lola through the glass, sitting at a table with her hair
-in a pony-tail, and my heart jumped, and so did my legs. They jogged
-up the step and inside and it was all I could do to duck before the
-doorway took off my head. Customers turned toward me, pasta dangling
-from their forks. I looked like a vagrant, you may recall. A six-foot
-six, dust-covered vagrant with titanium hooves. But Lola turned
-toward me and I stopped caring what other people thought, because
-there was nothing on her face but radiant joy.</p>
+<p>My immediate problem was figuring out how to persuade the Contours to
+take me where I wanted to go, i.e. to meet Lola Banks. Because I had
+serious doubts about my ability to control these legs. They had run
+me through traffic and over a truck and now deposited me at some
+random place I&rsquo;d never been before. Then I realized I was being
+very stupid, because I was outside a cafe, and inside it, sipping
+coffee, was Lola.</p>
+<p>My heart jumped, and so did my legs. &ldquo;No!&rdquo; I said. This
+was a nice cafe, with wrought iron furniture and a deep green awning
+and people in suits munching foccachias; I didn&rsquo;t want to crash
+in there and embarrass myself. But the legs were unstoppable. It was
+all I could do to duck beneath the doorway. Then I was inside. Heads
+turned toward me. Eyes widened. Pasta hung suspended from forks. I
+looked like a vagrant, you may recall. Plus I was six-foot-six, and
+had titanium hooves. I cringed. This was exactly what I didn&rsquo;t
+want. Lola turned toward me.</p>
+<p>Her hair was in a pony-tail. It seemed resentful about that. She wore
+a long dress, a yellow one, and I am no fashion expert, but there was
+something fundamentally wrong with it: it billowed unexpectedly in
+the chest and gripped her like death under the arms, as if designed
+for a person with very different specs. Like maybe a chimpanzee. But
+I didn&rsquo;t care, because Lola&rsquo;s face was radiant with joy,
+as if nothing mattered except that I was here, and I grinned, because
+I felt the exact same way.</p>
