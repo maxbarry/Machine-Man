@@ -1,33 +1,44 @@
 <p>Page 44.</p>
 <h5>CHAPTER 
 TEN</h5>
-<p>&ldquo;This is really unfortunate,&rdquo; Cassandra Cautery said.
-&ldquo;I&rsquo;ll be honest, Charlie. I feel terrible about this.&rdquo;</p>
-<p>I didn&rsquo;t look at her. I was watching the surgeons below, in the
-operating room. I couldn&rsquo;t see what they were doing. Mostly all
-I could see was an ocean of sterile green cloth. But occasionally one
-would move or pull back a flap, and there would be a flash of deep
-red.</p>
-<p>
+<p>&ldquo;This is really unfortunate,&rdquo; said Cassandra Cautery. &ldquo;I
+feel terrible about this.&rdquo;</p>
+<p>I couldn&rsquo;t see her. I was having trouble opening my eyes. They
+had sedated me, back at the cafe, while I was watching Lola Banks.
+While I was transfixed by the opening and closing of her mouth, the
+shock and fear spreading across her face, someone jabbed a needle in
+my arm. As Lola&rsquo;s fingers described an arc in the air, a curve
+that terminated at the deep red flower blossoming beneath her yellow
+dress, they filled my veins with chemicals.</p>
+<p>&ldquo;What we need now,&rdquo; said Cassandra Cautery, &ldquo;is
+just to take a few deep breaths.&rdquo;</p>
+<p>My right eyelid peeled open. My left was still gummed up, but I could
+see Cassandra Cautery&rsquo;s face, framed in serious brown hair.
+Beyond her was a nondescript ceiling. I could have been anywhere. But
+I wasn&rsquo;t. I was at work.</p>
+<p>&ldquo;Would you like some water?&rdquo; she said. &ldquo;I bet
+you&rsquo;re thirsty.&rdquo;</p>
+<p>Lola had reached for me. I tried to catch her. But my legs wouldn&rsquo;t
+move. They were inert. They were anchors. I had strained forward and
+Lola fell right in front of me.</p>
+<p>&ldquo;I think there&rsquo;s been some miscommunication on both
+sides,&rdquo; said Cassandra Cautery. &ldquo;I think there are some
+real lessons to be learned.&rdquo;</p>
+<p><em>Lola</em>, I croaked. Cassandra Cautery leaned closer. I don&rsquo;t
+think she heard me. But she knew what I meant.</p>
+<p>&ldquo;It&rsquo;s understandable that you&rsquo;re upset, Charlie.
+I&rsquo;d be upset, in your place. But I want you to bear in mind, it
+was a high-pressure situation. Our guys were outside their comfort
+zone. They were forced into split-second decisions.&rdquo;</p>
+<p>&ldquo;Lola.&rdquo; This time it was a real word. My left eye was
+half-open. In a minute or two, I would be able to sit up. Shortly
+after that, I would be able to get my hand around Cassandra Cautery&rsquo;s
+tiny neck and squeeze some answers out of her.</p>
+<p>&ldquo;It&rsquo;s the unknown,&rdquo; she said. &ldquo;It scares
+people. It makes everyone think worst-case. All this, Charlie, could
+have been avoided, if only there had been full disclosure.&rdquo;</p>
+<p>My left eye opened. I was in a medical room. It was small and
+windowless and smelt like detergent. The walls were light blue. 
 </p>
-<p>
-</p>
-<p>
-</p>
-<p>
-</p>
-<p>
-</p>
-<p>
-</p>
-<p>
-</p>
-<p>
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>
-</p>
-</BODY>
-</HTML>
+<p>&ldquo;With that in mind,&rdquo; said Cassandra Cautery, &ldquo;I&rsquo;d
+like to figure out why your girlfriend has a metal heart.&rdquo;</p>

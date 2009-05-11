@@ -24,4 +24,4 @@ on the floor.&rdquo;</p>
 <p>&ldquo;No!&rdquo; shouted Lola. She jumped forward and threw out her
 arms. It was as if she was going to fly toward Carl and wrench his
 gun away, or call down the wrath of the gods, or something. I don&rsquo;t
-know. All I know is Carl shot Lola twice in the heart.</p>
+know. All I know is Carl pivoted and shot Lola twice in the heart.</p>

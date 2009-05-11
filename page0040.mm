@@ -5,8 +5,9 @@ been at the lab too long. I had forgotten what it felt like to
 interact with people just for the pleasure of it.</p>
 <p>&ldquo;Hi.&rdquo; Her cheeks reddened. The cafe patrons were staring
 at us. She bit her lip. &ldquo;Take a seat.&rdquo;</p>
-<p>&ldquo;No need.&rdquo; I concentrated, and the Contours began to
-retract. Soon I was four foot tall. &ldquo;I&rsquo;m in one.&rdquo;</p>
+<p>&ldquo;I&rsquo;m already in one.&rdquo; I concentrated. The Contours
+settled; the pistons retracted. This still left me towering above the
+table, but not as much.</p>
 <p>Lola&rsquo;s mouth formed an O. It was very cute. I felt proud, to be
 the cause of that O. Then she closed it, and swallowed. &ldquo;Did
 you... make it here okay?&rdquo;</p>
