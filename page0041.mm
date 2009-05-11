@@ -8,7 +8,7 @@ felt: like I was leaving my physical body, becoming weightless and
 untouchable.</p>
 <p>A hard shard of light skipped across Lola&rsquo;s face, a reflection.
 I turned, because I by now I&rsquo;d heard the motor, and recognized
-it. A white van jumped the kerb and began to disgorge Better Future
+it. A white van jumped the curb and began to disgorge Better Future
 security personnel.</p>
 <p>&ldquo;I think&mdash;&rdquo; I said, but that was all I managed
 before they burst into the cafe, and people began to scream and

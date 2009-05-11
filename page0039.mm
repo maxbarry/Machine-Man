@@ -10,7 +10,7 @@ stupid, because I was outside a cafe, and inside it, sipping coffee,
 was Lola.</p>
 <p>My heart jumped, and so did my legs. &ldquo;No!&rdquo; I said. This
 was a nice cafe, with wrought iron furniture and a deep green awning
-and people in suits munching foccachias; I didn&rsquo;t want to crash
+and people in suits munching focaccia; I didn&rsquo;t want to crash
 in there and embarrass myself. But the legs were unstoppable. It was
 all I could do to duck beneath the doorway, and then I was inside.
 Heads turned toward me. Eyes widened. Pasta hung suspended from
