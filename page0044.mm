@@ -6,21 +6,21 @@ feel terrible about this.&rdquo;</p>
 <p>I couldn&rsquo;t see her. I was having trouble opening my eyes. They
 had sedated me, back at the cafe, while I was watching Lola Banks.
 While I was transfixed by the opening and closing of her mouth, the
-shock and fear spreading across her face, someone had jabbed a needle
+slowly spreading shock and fear on her face, someone jabbed a needle
 in my arm. My veins filled with chemicals as Lola&rsquo;s fingers
 described a slow arc that terminated at the deep red flower
 blossoming beneath her yellow dress.</p>
 <p>&ldquo;What we need now,&rdquo; said Cassandra Cautery, &ldquo;is
 just to take a few deep breaths.&rdquo;</p>
 <p>My right eyelid peeled open. My left was still gummed up, but I could
-see a blob where her face must be, framed in brown. Beyond that was a
-nondescript ceiling. I could have been anywhere. But I wasn&rsquo;t.
-I was at work.</p>
+see a blob where her face must be, framed by watery brown hair.
+Beyond that was a nondescript ceiling. I could have been anywhere.
+But I wasn&rsquo;t. I was at work.</p>
 <p>&ldquo;Would you like some water?&rdquo; she said. &ldquo;I bet
 you&rsquo;re thirsty.&rdquo;</p>
-<p>Lola had reached for me. I tried to catch her, but my legs wouldn&rsquo;t
-move. They were inert. They were anchors. I strained forward and Lola
-fell to the floor in front of me.</p>
+<p>Lola had reached for me. I had tried to catch her, but my legs
+wouldn&rsquo;t move. They were inert. They were anchors. I strained
+uselessly and Lola fell to the floor in front of me.</p>
 <p>&ldquo;I think there&rsquo;s been some miscommunication on both
 sides,&rdquo; said Cassandra Cautery. &ldquo;I think there are some
 real lessons to be learned.&rdquo;</p>
