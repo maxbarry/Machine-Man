@@ -13,7 +13,7 @@ red flower that blossomed beneath her yellow dress.</p>
 <p>&ldquo;What we need now,&rdquo; said Cassandra Cautery, &ldquo;is
 just to take a few deep breaths.&rdquo;</p>
 <p>My right eyelid peeled open. My left was still gummed up, but I could
-see a blob where her face must be, framed by watery brown hair.
+see a blob where her face must be, framed by watery blonde hair.
 Beyond that was a nondescript ceiling. I could have been anywhere.
 But I wasn&rsquo;t. I was at work.</p>
 <p>&ldquo;Would you like some water?&rdquo; she said. &ldquo;I bet
