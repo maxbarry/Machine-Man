@@ -40,6 +40,6 @@ avoided, if only there had been full disclosure.&rdquo;</p>
 <p>I managed to co-ordinate an arm and levered myself up. I was in a
 medical room. It was small and windowless. The walls were a pale,
 nostalgic blue. I could smell something acrid and unforgiving, like
-detergent. Or maybe that was Cassandra Cautery.</p>
-<p>&ldquo;With that in mind,&rdquo; she said, &ldquo;I&rsquo;d like to
-figure out why your girlfriend has a metal heart.&rdquo;</p>
+detergent. Or maybe that was her.</p>
+<p>&ldquo;With that in mind,&rdquo; Cassandra Cautery said, &ldquo;I&rsquo;d
+like to figure out why your girlfriend has a metal heart.&rdquo;</p>
