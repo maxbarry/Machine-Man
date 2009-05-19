@@ -1,20 +1,48 @@
 <p>Page 48.</p>
-<p>I was very sick as a child. I guess that comes as no surprise. I was
-that kid who spent a whole summer inside, curtains drawn against the
-sounds of my friends hooting and laughing in the street outside.
-Afterward, when I returned to school, I walked up to the gym teacher
-at the start of every class and showed him my note that said I was to
-be excused to the library. He made me show him that note every single
-time, even though it clearly said <em>until further notice</em>. I
-think he was waiting for the day I would decide, through my strength
-of character, that I was man enough to handle gym class, regardless
-of what my note said. That day never came. That day was never going
-to come. I liked the library. In the library, I read about trains and
-aeroplanes and how they built Hoover Dam. And later, walking home, I
-would watch a boom gate descend across a level crossing and know that
-it did so because the wheels of an approaching train had caused the
-track&rsquo;s inductance to dip below a pre-programmed level. Things
-like that made me feel good.</p>
+<p>I was sickly as a child. I guess that comes as no surprise. I was
+that kid who spent the whole summer inside, curtains drawn against
+the sounds of others my age hooting and laughing in the street
+outside. At school, I walked up to the gym teacher at the start of
+every class and showed him the note that said I was to be excused to
+the library. He made me show him that note every time, even though it
+clearly said <em>until further notice</em>. I think he was waiting for
+the day I would decide, through strength of character, that I was
+ready to handle gym class, regardless of what my note said.</p>
+<p>That day never came. That day was never going to come. In the
+library, I read about trains and genes and how they built Hoover Dam.
+And later, walking home, I would watch a boom gate descend across a
+level crossing and know it did so because the wheels of an
+approaching train had dipped the track&rsquo;s inductance below a
+pre-programmed level. Things like that made me feel good.</p>
+<p>Any kind of physical activity, I was at the controls of some
+ridiculous machine, something both over-complicated and ineffectual,
+with only the vaguest idea how to make it work. I sucked so badly at
+everything that I wasn&rsquo;t just the last picked, after the kid
+with one leg shorter than the other; I caused arguments about whether
+all players had to be on the field.</p>
+<p>I know that for many kids, school was the exact opposite experience:
+they could run and jump and throw balls like missiles without
+thinking about it, and it was the muscle inside their heads that was
+loose and mysterious and couldn&rsquo;t be relied upon to perform. 
+</p>
+<p>
+</p>
+<p>
+</p>
+<p>
+</p>
+<p>I never wanted to swap with those kids. I kind of pitied them, as
+they did me. 
+</p>
+<p>
+</p>
+<p>I don&rsquo;t mean to imply that they got it easy. I didn&rsquo;t
+want to swap with them. I&rsquo;m just trying to make the point that
+I have never really believed my body is on my side.</p>
+<p>
+</p>
+<p>
+</p>
 <p>Gym class, on the other hand, was fifty minutes of frustration and
 humiliation. I felt like I was at the controls of some ridiculously
 over-complicated machine, maybe something Soviet-era, with only the
@@ -25,13 +53,8 @@ understanding of the forces acting upon it and the parabola it would
 describe, and still drop the catch. Teammates would look at me with
 faces of disgust and betrayal and I felt exactly the same way. My
 body had let me down again.</p>
-<p>I know that for many kids the experience was the exact opposite: they
-could run and jump and throw balls like missiles without even
-thinking about it, and it was the muscle inside their heads that was
-loose and unreliable and wouldn&rsquo;t perform when they needed it.
-I don&rsquo;t mean to imply that they got it easy. I didn&rsquo;t
-want to swap with them. I&rsquo;m just trying to make the point that
-I have never really believed my body is on my side.</p>
+<p>
+</p>
 <p>
 </p>
 <p>
