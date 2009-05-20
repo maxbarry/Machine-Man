@@ -24,11 +24,11 @@ a post-traumatic reaction. I had been through a lot.</p>
 <p>&ldquo;She&rsquo;s
 going to be okay, I think,&rdquo; Carl said.</p>
 <p>The sympathy in his
-voice unmade me. Suddenly I was blubbering helplessly. Maybe Carl was
-a good man. A good man, in a tough job. Maybe he had never hated me.
-Maybe he had, but only because I had walked past him a thousand times
-and never said hello, treating him like a piece of furniture. Maybe
-this was a new beginning for us. Maybe we would be best friends.</p>
+voice unmade me. I blubbered helplessly. Maybe Carl was a good man. A
+good man, in a tough job. Maybe he had never hated me. Maybe he had,
+but only because I had walked past him a thousand times and never
+said hello, treating him like a piece of furniture. Maybe this was a
+new beginning for us. Maybe we would be best friends.</p>
 <p>&ldquo;It was only
 NLA,&rdquo; Carl said. &ldquo;Non-lethal ammunition. I wouldn&rsquo;t
 have fired otherwise.&rdquo;</p>
