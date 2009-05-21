@@ -8,16 +8,18 @@ wheelchair again, I found the grips and pushed myself up to the
 glass.</p>
 <p>Lola Banks was on the table. I knew this because I could see one arm
 poking out from beneath an ocean of green cloth. It was the only
-piece of her I could see, but that was enough. It was her. A surgeon
-stood with his back to me, his shoulders working. It felt very wrong,
-her lying there while a man she didn&rsquo;t know dug into her chest.</p>
+piece of her I could see, but that was enough. A surgeon stood with
+his back to me, his shoulders working. It felt very wrong, her lying
+there while a man she didn&rsquo;t know dug into her chest.</p>
 <p>&ldquo;I think Miss Banks must have got herself into a trial,&rdquo;
 said Cassandra Cautery. &ldquo;The heart is a SynCardia model, but
 not one our people recognize.&rdquo;</p>
 <p>I could see it. The top, at least. It sat in a steel bowl on a tray
 to a surgeon&rsquo;s right, a red-stained chunk of plastic and metal.
 It looked strange, but then I suppose it had been deformed by two
-close-range impacts from Carl&rsquo;s not-quite-lethal ammunition.</p>
+close-range impacts from Carl&rsquo;s not-quite-lethal ammunition.
+Also, I didn&rsquo;t really know what artificial hearts were supposed
+to look like. I wasn&rsquo;t up to that yet.</p>
 <p>&ldquo;Unusual, to have steel components,&rdquo; she said. &ldquo;Very
 unusual. Please ask her about that, when she wakes up.&rdquo;</p>
 <p>I said nothing. I wasn&rsquo;t talking to Cassandra Cautery. I had
