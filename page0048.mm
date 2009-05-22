@@ -3,7 +3,7 @@
 that kid who spent a whole summer inside, curtains drawn against the
 sounds of others my age hooting and laughing in the street outside.
 Glandular fever. At school, I walked up to the gym teacher at the
-start of every class and showed him the note that said I was to be
+start of every class and handed him the note that said I was to be
 excused to the library. He made me show him that note every time,
 even though it clearly said <em>until further notice</em>. I think he
 was waiting for the day I would decide, through strength of
