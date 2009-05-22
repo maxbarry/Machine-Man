@@ -3,18 +3,17 @@
 that kid who spent a whole summer inside, curtains drawn against the
 sounds of others my age hooting and laughing in the street outside.
 Glandular fever. Then complications in the lungs. When I got back to
-school, I walked up to the gym teacher at the start of every class
-and handed him the note that said I was to be excused to the library.
-He made me show him that note every time, even though it clearly said
-<em>until further notice</em>. I think he was waiting for the day I
-would decide, through strength of character, that I was ready to
-handle gym class, and damn what my note said. That day never came.
-That day was never going to come. In the library, I read about trains
-and DNA and how they built Hoover Dam. And later, walking home, I
-would watch a boom gate descend across a level crossing and know it
-did so because the wheels of an approaching train had dipped the
-track&rsquo;s inductance below a pre-programmed level. Things like
-that made me feel good.</p>
+school, every gym class I walked up and handed the teacher the note
+that said I was to be excused to the library. He made me show him
+that note every time, even though it clearly said <em>until further
+notice</em>. I think he was waiting for the day I would decide,
+through strength of character, that I was ready to handle gym class,
+and damn what my note said. That day never came. That day was never
+going to come. In the library, I read about trains and DNA and how
+they built Hoover Dam. And later, walking home, I would watch a boom
+gate descend across a level crossing and know it did so because the
+wheels of an approaching train had dipped the track&rsquo;s
+inductance below a pre-programmed level. I loved that.</p>
 <p>One day my note ran out. The gym teacher took it from my fingers and
 deliberately crumpled it into a ball. I had known this day was
 coming, but still, it felt like losing a friend. &ldquo;Now,
