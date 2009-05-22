@@ -33,10 +33,10 @@ downward when another boy stole the ball away. I was so slow I amazed
 myself.</p>
 <p>Still, that night, I lay awake thinking it over. I had stopped that
 ball. Maybe that meant something. Maybe I should get a soccer ball,
-and every day after school kick it against the wall in the alley
-outside my mom&rsquo;s apartment. And maybe I would improve, and next
-time I took the field, kids would look at me with something other
-than pity and disgust in their eyes. Maybe I would get good.</p>
+and after school kick it against the wall of the alley outside. Maybe
+I would improve. Become good, even. And I would barely remember this
+time, when I couldn&rsquo;t pull on shorts without my classmates&rsquo;
+eyes filling with pity and disgust.</p>
 <p>I wish I could talk to that kid now, and say: <em>Don&rsquo;t bother.</em>
 I would tell him it turns out to be a lot of stupid, mindless effort
 for no reward. I would explain that as far as the other kids are
