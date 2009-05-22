@@ -38,18 +38,17 @@ I would improve. Become good, even. And I would barely remember this
 time, when I couldn&rsquo;t pull on shorts without my classmates&rsquo;
 eyes filling with pity and disgust.</p>
 <p>I wish I could talk to that kid now, and say: <em>Don&rsquo;t bother.</em>
-I would tell him it turns out to be a lot of stupid, mindless effort
-for no reward. I would explain that as far as the other kids are
-concerned, sucking pretty badly is just as pathetic as sucking really
-badly, so he might as well just read books. <em>Being able to kick a
-ball</em>, I would say, <em>that gets less and less important</em>. By
-the end of high school, the kids who can leap and dive and kick balls
-like missiles, a lot of them will have already dropped out. The ones
-who remain will walk into class with their textbooks gripped tight,
-because the muscle they need to survive now is the one they&rsquo;ve
-never mastered: the loose, flabby one that gets easily tired, inside
-their heads.</p>
-<p>I wish I could tell my junior high self: <em>You know how the strong
-boys get respect, while smart kids like you are circus freaks, only
-good for entertainment? Well, pretty soon, that starts to swap
-around.</em></p>
+I would tell my younger self that it turns out to be a lot of stupid,
+mindless effort for no reward. I would explain that as far as the
+other kids are concerned, sucking pretty badly is just as pathetic as
+sucking really badly, so he might as well just read books. <em>Being
+able to kick a ball</em>, I would say, <em>that gets less and less
+important</em>. By the end of high school, the kids who can leap and
+dive and kick balls like missiles, a lot of them will have already
+dropped out. The ones who remain will walk into class with their
+textbooks gripped tight, because the muscle they need to survive now
+is the one they&rsquo;ve never mastered: the loose, flabby one that
+gets easily tired, inside their heads.</p>
+<p>I wish I could tell that kid: <em>You know how the strong boys get
+respect, while smart kids like you are circus freaks, only good for
+entertainment? Well, pretty soon, that starts to swap around.</em></p>
