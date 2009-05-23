@@ -12,12 +12,12 @@ been none. Not to insult dogs. But it was different.</p>
 <p>&ldquo;Hey,&rdquo; I said softly. Lola reached for her nose, because
 there were a couple tubes in there. I guided her hand away. &ldquo;You&rsquo;ve
 had surgery. They had to fix your heart.&rdquo;</p>
-<p>Her eyes widened. Her fingers moved down to her chest, and touched
-the bulge beneath her gown. &ldquo;Ba,&rdquo; she said.</p>
+<p>Her eyes widened. Her fingers moved down to her chest, touched the
+bulge beneath her gown. &ldquo;Buh,&rdquo; she said.</p>
 <p>&ldquo;It&rsquo;s okay,&rdquo; I said. &ldquo;Just try to relax.&rdquo;</p>
-<p>&ldquo;Ba.&rdquo;</p>
+<p>&ldquo;Buh.&rdquo;</p>
 <p>I leaned closer. &ldquo;What?&rdquo;</p>
-<p>&ldquo;Ba!&rdquo; Her fingers closed around my shirt. &ldquo;Ba!&rdquo;</p>
+<p>&ldquo;Buh.&rdquo; Her fingers closed around my shirt. &ldquo;<em>Bah.</em>&rdquo;</p>
 <p>&ldquo;Don&rsquo;t exert yourself,&rdquo; I said, alarmed. &ldquo;You&rsquo;re
 not supposed to raise your blood pressure.&rdquo;</p>
 <p>She pulled. I went with it, because I was worried that if I resisted
