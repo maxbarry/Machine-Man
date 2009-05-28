@@ -6,8 +6,7 @@ front of her. &ldquo;Lola?&rdquo; Nothing. I moved closer. I felt
 tense, like she might leap up and bite me. I was still shaky from
 watching Cassandra Cautery cry in the hallway. That had been a horror
 movie.</p>
-<p>I
-reached out and touched Lola&rsquo;s shoulder. Still no reaction.
+<p>I reached out and touched Lola&rsquo;s shoulder. Still no reaction.
 &ldquo;Lola, it&rsquo;s okay,&rdquo; I said. &ldquo;Everything&rsquo;s
 okay.&rdquo; I began to relax. I stroked her hair for a while.
 Sometimes I repeated: &ldquo;Everything&rsquo;s okay.&rdquo; I was
