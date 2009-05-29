@@ -1,15 +1,15 @@
 <p>Page 52.</p>
 <p><A NAME="firstHeading"></A>&ldquo;I
 was born with a congenital heart defect,&rdquo; Lola said.
-&ldquo;Hypoplastic left heart syndrome. Only one side
-developed properly. I had surgery three times before I turned two. It
-bankrupted my family. And I was always going to need more, because
-the right side was only just hanging in there. It was a matter of
-time. By the time I turned eight, I figured out that I was a time
-bomb. We never had vacations, or a new car, or ate out. My parents
-never had another kid. They scraped together everything they could
-against the day I would faint and cost them three hundred thousand
-dollars.</p>
+&ldquo;Hypoplastic
+left heart syndrome. Only one side developed properly. I had surgery
+three times before I turned two. It bankrupted my family. And I was
+always going to need more, because the right side was only just
+hanging in there. It was a matter of time. By the time I turned
+eight, I figured out that I was a time bomb. We never had vacations,
+or a new car, or ate out. My parents never had another kid. They
+scraped together everything they could against the day I would faint
+and cost them three hundred thousand dollars.</p>
 <p>&ldquo;So I decided to die. We lived
 way up north, a place called Chabon, and one day I walked out into
 the snow and took off my coat and hat and sat down next to a frozen
