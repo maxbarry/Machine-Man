@@ -1,5 +1,5 @@
 <p>Page 55.</p>
-<p>When Lola had fallen asleep, I wheeled
+<p>Once Lola had fallen asleep, I wheeled
 myself out into the corridor. Cassandra Cautery emerged from a door
 ten feet away. &ldquo;Well,&rdquo; she said. &ldquo;That was some
 story.&rdquo;</p>
