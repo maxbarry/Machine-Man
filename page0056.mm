@@ -23,7 +23,7 @@ inside.</p>
 <p>It was a large room, with many shelves.
 On slabs of gleaming steel lay half a dozen sets of legs in various
 stages of completion. My Contours were among them. To my right was a
-smorgasboard of fingers. Next to them were hands. I was not really
+smorgasbord of fingers. Next to them were hands. I was not really
 happy with the hands. So far I&rsquo;d been unable to come up with
 anything I could honestly say was a clear improvement over biology.
 It was frustrating, because I had some really great arms in here.
