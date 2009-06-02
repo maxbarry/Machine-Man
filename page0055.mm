@@ -9,10 +9,11 @@ what motivates people to choose their careers,&rdquo; Cassandra
 Cautery said. &ldquo;It&rsquo;s never what you think.&rdquo;</p>
 <p>I said nothing.</p>
 <p>&ldquo;She can have the heart. We
-haven&rsquo;t disposed of it. If... well, if it has sentimental
-value.&rdquo;</p>
-<p>&ldquo;Okay.&rdquo;</p>
-<p>Silence fell. I said, &ldquo;I want to
-continue the project.&rdquo;</p>
-<p>&ldquo;Yes,&rdquo; Cassandra Cautery
-said. &ldquo;I thought you might.&rdquo;</p>
+haven&rsquo;t disposed of it. So if it has sentimental value... well,
+she can have it.&rdquo;</p>
+<p>&ldquo;I&rsquo;ll tell her that.&rdquo;</p>
+<p>Silence fell.</p>
+<p>I said, &ldquo;I want to continue the
+project.&rdquo;</p>
+<p>&ldquo;Yes,&rdquo; she said. &ldquo;I
+thought you might.&rdquo;</p>
