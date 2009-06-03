@@ -10,7 +10,8 @@ to the bathroom in this place without swiping first. I think it had
 less to do with keeping unauthorized people out than monitoring where
 authorized people went. &ldquo;I don&rsquo;t have my pass,&rdquo; I
 said. This was kind of an accusation, because I&rsquo;d had it before
-Carl shot Lola and made them sedate me.</p>
+Carl shot Lola. They had taken it while I was sedated, along with my
+fingers and legs.</p>
 <p>&ldquo;That&rsquo;s okay.&rdquo; Carl
 swiped his own card. The lock&rsquo;s display blinked a friendly
 green. I was surprised, because as far as I knew, we did not grant
