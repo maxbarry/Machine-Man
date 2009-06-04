@@ -1,6 +1,9 @@
 <p>Page 58.</p>
 <p></p>
-<p></p>
+<p>&lt;&lt; He maybe goes back to the lab.
+Eager to see if his equipment is there. But it would be good to set
+up a dynamic with Lola, too. Maybe leave the lab for next week. 
+</p>
 <p></p>
 <p></p>
 <p></p>
