@@ -12,8 +12,8 @@ have them back. As I slid my terminated thighs into the restraints
 and began aligning the tiny needles that transmitted my nerve signals
 to circuitry, I could feel synapses popping in my brain like
 fireworks. I closed my eyes.</p>
-<p>&ldquo;You like
-those things, huh?&rdquo; said Carl.</p>
+<p>&ldquo;You really
+like those things,&rdquo; said Carl.</p>
 <p>I looked at him.</p>
 <p>&ldquo;They can
 press, what, a ton?&rdquo;</p>
@@ -26,7 +26,7 @@ never be strong enough,&rdquo; Carl said. &ldquo;That&rsquo;s for
 sure.&rdquo;</p>
 <p>I
 stood up. The Contours&rsquo; hooves <em>thunk-thunked</em>
-against the floor. I was tall again. &ldquo;I&rsquo;ve got it from
-here, Carl.&rdquo;</p>
-<p>He shrugged, and
+against the floor. I was tall again. &ldquo;I think I&rsquo;ve got it
+from here.&rdquo;</p>
+<p>He shrugged and
 left. That was the last time I ever saw him. All of him, I mean.</p>
