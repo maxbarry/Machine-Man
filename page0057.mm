@@ -28,5 +28,7 @@ sure.&rdquo;</p>
 stood up. The Contours&rsquo; hooves <em>thunk-thunked</em>
 against the floor. I was tall again. &ldquo;I think I&rsquo;ve got it
 from here.&rdquo;</p>
-<p>He shrugged and
-left. That was the last time I ever saw him. All of him, I mean.</p>
+<p>He nodded. If he
+was miffed, it was hard to tell. He placed a card on the steel bench
+beside him: my ID. Then he left. It was the last time I ever saw him.
+All of him, I mean.</p>
