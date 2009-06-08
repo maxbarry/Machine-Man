@@ -3,7 +3,7 @@
 THIRTEEN</h5>
 <p>I went to work with a spring in my
 step. Not literally. If you want to be literal, I went to work with
-servo-hydraulics in my step. I mean I was happy. I was optimistic. I
+servo-magnetics in my step. I mean I was happy. I was optimistic. I
 was glad to be alive. I read somewhere that for a person to be
 content with life, they need two out of three things: health, work,
 and love. Right now, I was all over that. I was a triple threat.</p>
