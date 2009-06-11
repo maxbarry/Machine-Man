@@ -1,9 +1,10 @@
 <p>Page 63.</p>
 <p>Cassandra Cautery was not pleased to
-hear about my phantom pain. I hadn&rsquo;t even meant to bring it up.
+hear about my phantom pain. I hadn&rsquo;t meant to let on about it.
 I had been sitting in her office, talking about operation procedure,
 and noticed her eyes drifting down to my calves. I followed them and
-realized I was rubbing the titanium, kneading it like a muscle.</p>
+realized I was kneading the titanium with the palm of my hand, like a
+sore muscle.</p>
 <p>&ldquo;Everything all right?&rdquo; she
 said.</p>
 <p></p>

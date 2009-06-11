@@ -35,22 +35,21 @@ sleep. I think I had been trying to find my legs. I could no longer
 believe this was damaged nerves. It was my brain, punishing me.</p>
 <p>I had to give it to my brain. It had
 taken a while, but it had figured out how to fight back. It had
-absorbed an impressive arsenal of pain-dampening drugs and come out
-swinging. 
-</p>
-<p>I sat up again. The cramp was coming
-back. It was preparing to clench tight my phantom toes. I had to
-think fast. Phantom pain, one theory went, was caused by the brain
-thinking the limb was still there, needing to be cared for. I had
-read about treatments with mirrors, patients staring at optical
-illusions of their whole, healthy bodies. That could be enough,
-apparently. I didn&rsquo;t have a mirror. Or a spare foot to mirror,
-for that matter. But I had something. I swung my thighs off the edge
-of my bunk and reached down for the Contours.</p>
-<p>The cramp hit when I was halfway
-through fitting. I had to alternate between slotting needles and
-grabbing at the air to massage ghost toes, whimpering. My fingers
-shook. By the end, I was jabbing those needles in there, hoping they
-hit something, gnashing my teeth against the pain. Finally, I
-finished. I extended the Contour. My hoof flexed, up and down, up and
-down. &ldquo;Ahhh,&rdquo; I said. That <em>was</em> better.</p>
+absorbed an impressive arsenal of pain-damping drugs and come out
+swinging.</p>
+<p>I sat up again. The cramp was
+returning. It was preparing to clench tight my phantom toes. I had
+once read of a treatment for phantom pain that involved mirrors: they
+had patients stare at optical illusions of themselves, made whole and
+healthy. That was enough for the brain, apparently. You see why I was
+skeptical about the whole area. But it gave me an idea. I didn&rsquo;t
+have a mirror, or, for that matter, a spare foot to reflect, but I
+had something. I swung my thighs off the edge of my bunk and reached
+for the Contours.</p>
+<p>The cramp hit halfway through fitting.
+I had to alternate between slotting needles and grabbing at the air
+to massage ghost toes, whimpering. My fingers shook. By the end, I
+was jabbing those needles in there, hoping they hit something,
+gnashing my teeth against the pain. Finally, I finished. I extended
+the Contour. My hoof flexed, up and down, up and down. &ldquo;Ahhh,&rdquo;
+I said. That <em>was</em> better.</p>
