@@ -41,11 +41,11 @@ swinging.</p>
 returning. It was preparing to clench tight my phantom toes. I had
 once read of a treatment for phantom pain that involved mirrors: they
 had patients stare at optical illusions of themselves, made whole and
-healthy. That was enough for the brain, apparently. You see why I was
-skeptical about the whole area. But it gave me an idea. I didn&rsquo;t
-have a mirror, or, for that matter, a spare foot to reflect, but I
-had something. I swung my thighs off the edge of my bunk and reached
-for the Contours.</p>
+healthy. That was enough to convince the brain that there was no need
+to perceive pain, apparently. You see why I was skeptical about the
+whole area. But it gave me an idea. I didn&rsquo;t have a mirror, or,
+for that matter, a spare foot to reflect, but I had something. I
+swung my thighs off the edge of my bunk and reached for the Contours.</p>
 <p>The cramp hit halfway through fitting.
 I had to alternate between slotting needles and grabbing at the air
 to massage ghost toes, whimpering. My fingers shook. By the end, I
