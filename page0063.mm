@@ -1,4 +1,12 @@
 <p>Page 63.</p>
+<p>Cassandra Cautery was not pleased to
+hear about my phantom pain. I hadn&rsquo;t even meant to bring it up.
+I had been sitting in her office, talking about operation procedure,
+and noticed her eyes drifting down to my calves. I followed them and
+realized I was rubbing the titanium, kneading it like a muscle.</p>
+<p>&ldquo;Everything all right?&rdquo; she
+said.</p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
@@ -37,6 +45,93 @@ Carl in a while.</p>
 <p></p>
 <p></p>
 <p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>But I finally finished and sent a
+mental command to extend the leg. It did. 
+</p>
+<p>It was not a smart move, rushing a
+fitting like this. One bad connection and the Contours might launch
+me into the ceiling. But 
+</p>
+<p>ead to me trying to flex an ankle and
+launching myself into the ceiling. 
+</p>
+<p>inally I got the last essential
+connection hooked up. 
+</p>
+<p>There was one thing I could do.</p>
+<p>One theory with phantom pain was that
+the brain still thinks</p>
+<p>arises because the brain has lost its
+ability 
+</p>
+<p></p>
+<p></p>
+<p>You had to expect that would have
+side-effects. 
+</p>
+<p>had only limited phantom sensations</p>
+<p>This feeling strengthened when,
+following my own limb 
+</p>
+<p>was what you got for allowing your
+brain to 
+</p>
+<p>I didn&rsquo;t think that people made
+it up, exactly</p>
+<p></p>
+<p>This was not the first time this had
+happened. I had felt odd sensations&mdash;itching and crawling, the
+odd twinge&mdash;in body parts I no longer owned since the beginning.
+But I had 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>The Contours lay on the floor; my
+finger-glove 
+</p>
+<p>Then enough of my brain came online to
+allow me to realize I didn&rsquo;t have any toes.</p>
+<p>I found the lamp switch and pulled
+myself into a sitting position. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&lt;&lt; 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p>spent a few foggy moments groping
+around in the sheets, trying to find my toes, before enough of my
+brain came up to speed to realize why I couldn&rsquo;t find them. 
+</p>
 <p></p>
 <p></p>
 <p></p>
