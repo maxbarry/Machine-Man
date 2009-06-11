@@ -13,26 +13,26 @@ where my toes would have been. As a scientist, I am not proud of
 this. But it seemed to help. After a while, I was able to lie back.</p>
 <p>I had never really believed in phantom
 pain. I&rsquo;d heard of it, of course. But it had always struck me
-as the product of irrational minds. I suspected that if you were to
-plot the data sets of people who experienced phantom pain following
-the loss of a limb with people who believed in higher beings,
-reincarnation, and spiritual energy, you would see a fairly serious
-correlation. It seemed like the logical consequences of allowing your
-brain to operate without discipline.</p>
-<p>I&rsquo;d thought this because in the
-first weeks following my own amputations, I&rsquo;d felt nothing
-worse than itching or crawling sensations. Well, that&rsquo;s not
-quite true. There had been twinges. Some minor cramps. The occasional
-shooting, blinding pain. But that had been easily attributable to
-nerve issues. I was, after all, doing some fairly serious messing
-around with the nerves, to interface them to my mechanical parts. It
-was reasonable to believe an occasional cross-wire would produce
-pain. Not phantom pain. Real pain.</p>
+as the product of irrational minds. I had suspected that if you were
+to plot the data sets of people who experienced phantom pain
+following the loss of a limb with people who believed in higher
+beings, reincarnation, and spiritual energy, you would see a fairly
+serious correlation. It seemed like the logical consequences of
+allowing your brain to operate without discipline.</p>
+<p>And in the weeks following my own
+amputations, I&rsquo;d felt nothing worse than itching or crawling
+sensations. Well, that&rsquo;s not quite true. There had been
+twinges. Some minor cramps. The occasional shooting, blinding pain.
+But that had been easily attributable to nerve issues. I was, after
+all, doing some fairly serious messing around with the nerves, to
+interface them to my mechanical parts. It was reasonable to believe
+an occasional cross-wire would produce pain. Not phantom pain. Real
+pain.</p>
 <p>But four of the last five nights, I&rsquo;d
 woken to discomfort in a body part I didn&rsquo;t have. And that
 other night, I had somehow turned myself completely around in my
-sleep, I think trying to find my legs. I no longer believed this was
-damaged nerves. It was my brain, punishing me.</p>
+sleep. I think I had been trying to find my legs. I could no longer
+believe this was damaged nerves. It was my brain, punishing me.</p>
 <p>I had to give it to my brain. It had
 taken a while, but it had figured out how to fight back. It had
 absorbed an impressive arsenal of pain-dampening drugs and come out
@@ -43,7 +43,7 @@ back. It was preparing to clench tight my phantom toes. I had to
 think fast. Phantom pain, one theory went, was caused by the brain
 thinking the limb was still there, needing to be cared for. I had
 read about treatments with mirrors, patients staring at optical
-illusions of their whole, healthy bodies. That was enough,
+illusions of their whole, healthy bodies. That could be enough,
 apparently. I didn&rsquo;t have a mirror. Or a spare foot to mirror,
 for that matter. But I had something. I swung my thighs off the edge
 of my bunk and reached down for the Contours.</p>
