@@ -1,143 +1,54 @@
 <p>Page 63.</p>
 <p>Cassandra Cautery was not pleased to
-hear about my phantom pain. I hadn&rsquo;t meant to let on about it.
-I had been sitting in her office, talking about operation procedure,
-and noticed her eyes drifting down to my calves. I followed them and
-realized I was kneading the titanium with the palm of my hand, like a
-sore muscle.</p>
+hear about my phantom pain. I hadn&rsquo;t meant to tell her. I was
+sitting in her office, talking about how the surgeons should remove
+my arm, and her eyes drifted down to my left calf. I realized I was
+absent-mindedly kneading the titanium there, as if it were a sore
+muscle.</p>
 <p>&ldquo;Everything all right?&rdquo; she
 said.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I didn&rsquo;t want to get carried
-away, but in the back of my mind, a lot of ideas were percolating
-around Lola. Like how she had lost the heart her father gave her, and
-maybe, one day, if things went right, I could give her one of mine.</p>
-<p></p>
-<p></p>
-<p>Cassandra Cautery stopped me in the
-corridor. &ldquo;Did you crush a wheelchair?&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Give her a heart. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p>But Lola had opened up to me; she had .
-I had seen her heart. That was pretty good.</p>
-<p></p>
-<p>&lt;&lt; He maybe goes back to the lab.
-Eager to see if his equipment is there. But it would be good to set
-up a dynamic with Lola, too. Maybe leave the lab for next week. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt; Charlie back in the lab. CC. 
-She&rsquo;s not willing to risk Charlie sever more parts of himself.
-He says, what&rsquo;s the point of making artificial limbs if I can&rsquo;t
-attach them anywhere? &gt;&gt;</p>
-<p></p>
-<p></p>
-<p>And then I realized I hadn&rsquo;t seen
-Carl in a while.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>But I finally finished and sent a
-mental command to extend the leg. It did. 
-</p>
-<p>It was not a smart move, rushing a
-fitting like this. One bad connection and the Contours might launch
-me into the ceiling. But 
-</p>
-<p>ead to me trying to flex an ankle and
-launching myself into the ceiling. 
-</p>
-<p>inally I got the last essential
-connection hooked up. 
-</p>
-<p>There was one thing I could do.</p>
-<p>One theory with phantom pain was that
-the brain still thinks</p>
-<p>arises because the brain has lost its
-ability 
-</p>
-<p></p>
-<p></p>
-<p>You had to expect that would have
-side-effects. 
-</p>
-<p>had only limited phantom sensations</p>
-<p>This feeling strengthened when,
-following my own limb 
-</p>
-<p>was what you got for allowing your
-brain to 
-</p>
-<p>I didn&rsquo;t think that people made
-it up, exactly</p>
-<p></p>
-<p>This was not the first time this had
-happened. I had felt odd sensations&mdash;itching and crawling, the
-odd twinge&mdash;in body parts I no longer owned since the beginning.
-But I had 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>The Contours lay on the floor; my
-finger-glove 
-</p>
-<p>Then enough of my brain came online to
-allow me to realize I didn&rsquo;t have any toes.</p>
-<p>I found the lamp switch and pulled
-myself into a sitting position. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>spent a few foggy moments groping
-around in the sheets, trying to find my toes, before enough of my
-brain came up to speed to realize why I couldn&rsquo;t find them. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<p>&ldquo;Just a glitch.&rdquo; I forced
+myself to put my hand in my lap. &ldquo;Nothing significant.&rdquo;</p>
+<p>Cassandra Cautery rose from her office
+chair and walked around the desk. She stopped on the rug, rested her
+butt against the desk, and folded her arms. I didn&rsquo;t like the
+look of this. &ldquo;Charlie, imagine we&rsquo;re building a body.&rdquo;
+I opened my mouth to say I <em>was</em>
+building a body, but she held up one finger. &ldquo;And it&rsquo;s a
+wonderful body, one we&rsquo;re very interested in getting right.
+Let&rsquo;s also say that all the ideas for how to build this body,
+they come from one particular brain. That brain is very important,
+wouldn&rsquo;t you say?&rdquo;</p>
+<p>&ldquo;Yes.&rdquo;</p>
+<p>She
+nodded. &ldquo;In fact, it&rsquo;s crucial. If we are building this
+body, the one thing we must do, the absolute top priority, is keep
+the brain safe. Do you agree?&rdquo;</p>
+<p>&ldquo;Yes.&rdquo;</p>
+<p>&ldquo;Well,
+to me, Charlie, the body we&rsquo;re building, it&rsquo;s not those
+pieces you&rsquo;re wearing. It&rsquo;s not the prosthetics
+themselves. It&rsquo;s the capacity to produce them. The body I&rsquo;m
+building, Charlie, is a corporate entity that can create artificial
+parts. Do you see the difference?&rdquo;</p>
+<p>I said
+nothing.</p>
+<p>&ldquo;I
+think you do. And you&rsquo;re the brain, Charlie. You&rsquo;re the
+thing I must protect. So when I hear about these...&rdquo; She
+gestured at my legs. &ldquo;These unexpected technical problems&mdash;&rdquo;</p>
+<p>&ldquo;Glitch,&rdquo;
+I said. &ldquo;One glitch. Which is temporary.&rdquo;</p>
+<p>&ldquo;When
+I hear about that, do you what I feel like doing? I feel like
+plucking that brain right out of the body and putting it in a jar.
+Somewhere safe, so that no matter what happens to the body, what
+mistakes are made, what <em>glitches</em>
+we may encounter, the brain is safe. You can understand that, can&rsquo;t
+you? The need to separate the brain from the body?&rdquo;</p>
+<p>&ldquo;But
+<em>I&rsquo;m</em> the body,&rdquo;
+I said. &ldquo;I&rsquo;m both. They can&rsquo;t be separated.&rdquo;</p>
+<p>&ldquo;Imagine
+they could,&rdquo; she said, and that was when I realized I hadn&rsquo;t
+seen Carl for a while.</p>
