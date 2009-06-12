@@ -39,7 +39,7 @@ legs. &ldquo;These unexpected technical problems&mdash;&rdquo;</p>
 <p>&ldquo;Glitch,&rdquo;
 I said. &ldquo;One glitch. Which is temporary.&rdquo;</p>
 <p>&ldquo;When
-I hear about that, do you what I feel like doing? I feel like
+I hear about that, do you know what I feel like doing? I feel like
 plucking that brain right out of the body and putting it in a jar.
 Somewhere safe, so that no matter what happens to the body, what
 mistakes are made, what <em>glitches</em>
