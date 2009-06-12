@@ -3,12 +3,11 @@
 <p></p>
 <p></p>
 <p></p>
-<p>Because
-the body, it&rsquo;s a dangerous place right now. There are parts
-being chopped off, experimental parts being added... who knows what
-might go wrong?&rdquo; She spread her palms. &ldquo;I mean, you said
-yourself, you&rsquo;re experiencing an unexpected technical problem
-right now.&rdquo;</p>
+<p>Because the body,
+it&rsquo;s a dangerous place right now. There are parts being chopped
+off, experimental parts being added... who knows what might go
+wrong?&rdquo; She spread her palms. &ldquo;I mean, you said yourself,
+you&rsquo;re experiencing an unexpected technical problem right now.&rdquo;</p>
 <p>&ldquo;Glitch.
 Temporary glitch.&rdquo;</p>
 <p>&ldquo;Mmm,&rdquo;
@@ -22,19 +21,18 @@ not inside the body.&rdquo;</p>
 <p></p>
 <p></p>
 <p></p>
-<p>project.
-What we&rsquo;re building, from my point of view, is the ability for
-Better Future to design and fabricate artificial bodies.</p>
-<p>It&rsquo;s
-the project. It&rsquo;s the ability for Better Future to design and
+<p>project. What we&rsquo;re
+building, from my point of view, is the ability for Better Future to
+design and fabricate artificial bodies.</p>
+<p>It&rsquo;s the
+project. It&rsquo;s the ability for Better Future to design and
 fabricate 
 </p>
-<p>the
-project. It&rsquo;s not those pieces you&rsquo;re wearing. It&rsquo;s
-the ability 
+<p>the project. It&rsquo;s
+not those pieces you&rsquo;re wearing. It&rsquo;s the ability 
 </p>
-<p>nd you
-are the brain.</p>
+<p>nd you are the
+brain.</p>
 <p></p>
 <p></p>
 <p></p>
@@ -43,43 +41,40 @@ are the brain.</p>
 <p></p>
 <p></p>
 <p></p>
-<p>That&rsquo;s
-a fair assessment of our situation, wouldn&rsquo;t you say?&rdquo;</p>
-<p>And we
-have a brain, from which comes all the wonderful ideas on how to
-build the body. 
+<p>That&rsquo;s a fair
+assessment of our situation, wouldn&rsquo;t you say?&rdquo;</p>
+<p>And we have a
+brain, from which comes all the wonderful ideas on how to build the
+body. 
 </p>
-<p>We
-have a brain, which produces all the wonderful ideas on how to build
-the body. 
+<p>We have a brain,
+which produces all the wonderful ideas on how to build the body. 
 </p>
-<p>&ldquo;But
-we can&rsquo;t separate them,&rdquo; I said. &ldquo;They&rsquo;re
-both here.&rdquo;</p>
+<p>&ldquo;But we can&rsquo;t
+separate them,&rdquo; I said. &ldquo;They&rsquo;re both here.&rdquo;</p>
 <p></p>
-<p>We
-have a brain, which comes up with wonderful ideas on how to build the
-body, 
+<p>We have a brain,
+which comes up with wonderful ideas on how to build the body, 
 </p>
 <p></p>
 <p></p>
-<p>&ldquo;Now,
-for me, this project isthe body 
+<p>&ldquo;Now, for me,
+this project isthe body 
 </p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
-<p>without
-which the body cannot survive, and a body, 
+<p>without which the
+body cannot survive, and a body, 
 </p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
-<p>Then I
-realized I hadn&rsquo;t seen Carl for a while.</p>
+<p>Then I realized I
+hadn&rsquo;t seen Carl for a while.</p>
 <p></p>
 <p></p>
 <p></p>
