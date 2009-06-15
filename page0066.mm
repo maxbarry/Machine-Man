@@ -1,4 +1,25 @@
-<p>Page 65.</p>
+<p>Page 66.</p>
+<p></p>
+<p></p>
+<p></p>
+<p>I had a problem: I
+couldn&rsquo;t replace my arm on my own. The irony was that if I
+already had a mechanical arm, it would have been easy. I could have
+programmed it, sedated myself, and woken to a finished job. Well,
+that&rsquo;s exagerating a little. I wouldn&rsquo;t be comfortable
+trusting it quite that far. But even conscious, it would have been
+handy. The attachments you could snap onto that arm, you wouldn&rsquo;t
+believe.</p>
+<p>Stuck with two meat
+arms, though, there was no way I could sever one of them, prepare the
+stump, and fit the machine. The difficulty wasn&rsquo;t the
+ampututation. The amputation I could handle, with sufficient
+quantities of analgesia. The hard part was what came next. All those
+nerves in the shoulder had to be 
+</p>
+<p>There were a lot of
+nerves in the shoulder. There were a lot of connectors in the arm. 
+</p>
 <p></p>
 <p></p>
 <p></p>
@@ -10,41 +31,17 @@
 <p></p>
 <p></p>
 <p></p>
+<p>That would require
+a level of pain-numbing drugs.</p>
+<p>For one thing, I
+didn&rsquo;t especially want to be conscious when it came off. For
+another, 
+</p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
-<p>I didn&rsquo;t want to get carried
-away, but in the back of my mind, a lot of ideas were percolating
-around Lola. Like how she had lost the heart her father gave her, and
-maybe, one day, if things went right, I could give her one of mine.</p>
 <p></p>
 <p></p>
-<p>Cassandra Cautery stopped me in the
-corridor. &ldquo;Did you crush a wheelchair?&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Give her a heart. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p>But Lola had opened up to me; she had .
-I had seen her heart. That was pretty good.</p>
-<p></p>
-<p>&lt;&lt; He maybe goes back to the lab.
-Eager to see if his equipment is there. But it would be good to set
-up a dynamic with Lola, too. Maybe leave the lab for next week. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt; Charlie back in the lab. CC. 
-She&rsquo;s not willing to risk Charlie sever more parts of himself.
-He says, what&rsquo;s the point of making artificial limbs if I can&rsquo;t
-attach them anywhere? &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
