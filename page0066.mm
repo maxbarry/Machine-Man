@@ -21,8 +21,8 @@ I said. I pressed the button again, just in case. But no. I did not
 have access.</p>
 <p>Stymied. It wasn&rsquo;t
 a total surprise. But it made certain things clear.</p>
-<p>I
-stepped out of the elevator and chewed my lip. After a minute, I
-decided two things. First, I should get Lola to help me with this
-arm. Second, it would be smart to go to the Repository, collect all
-my parts, and never let them out of my sight again.</p>
+<p>I stepped out of
+the elevator and chewed my lip. After a minute, I decided two things.
+First, I needed Lola to help me with this arm. Second, it would be
+smart to go to the Repository, collect all my parts, and never let
+them out of my sight again.</p>
