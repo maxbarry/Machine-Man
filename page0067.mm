@@ -12,10 +12,10 @@ the card into the slot and swiped.</p>
 <p>The lock blinked
 red. This was such a shock that I stood there for a moment, staring
 at it. This lock had never shown me red, ever. There was no reason
-for it. It was my room.</p>
-<p>&ldquo;No.&rdquo;
-The slipped out of my mouth in a groan, sounding like it belonged to
-someone else. I tried the card again. Red. Red. Red.</p>
+for it. It was my room. It was where I kept my parts.</p>
+<p>A groan slipped out
+of my mouth, sounding like it came from someone else. I tried the
+card again. Red. Red. Red.</p>
 <p>I couldn&rsquo;t
 breathe. A roaring grew in my ears, like a waterfall. My vision
 flared white. I grabbed at the wall for balance. Then I laughed
