@@ -16,13 +16,12 @@ happened. There might have been some kicking. I was agitated and not
 confident of making completely logical decisions. All I could think
 about was gathering everything I valued in one place and defending
 it.</p>
-<p>And so I went to
-Lola. But she was not in her suite. She was not anywhere on that
-level; or, at least, she didn&rsquo;t appear when I roamed the length
-of it, calling her name. I saw a few managers, and quite a lot of
-personal assistants. From their expressions, it became clear that I
-would soon also be seeing some security guards, so I fled to the
-stairs.</p>
+<p>So I went to Lola.
+But she was not in her suite. She was not anywhere on that level; at
+least, I didn&rsquo;t see her when I roamed the length of it, calling
+her name. I saw a few managers, and quite a lot of personal
+assistants. From their expressions, it became clear that I would soon
+also be seeing some security guards, so I turned back to the stairs.</p>
 <p>The Contours were
 surprisingly bad here. Twice they stopped, and I had to soft-reset
 them, by imagining raising my knee three times. I think they had
