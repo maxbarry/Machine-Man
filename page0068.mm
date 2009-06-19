@@ -37,7 +37,7 @@ down a second.&rdquo;</p>
 of getting past these guys on the Contours before anyone drew a
 weapon. I thought they were pretty good. A temporary solution, but
 still: better than letting them take me. Then Lola emerged from a
-doorway and stared at me. &ldquo;Charlie? What are you doing?&rdquo;</p>
+doorway. &ldquo;Charlie? What are you doing?&rdquo;</p>
 <p>&ldquo;What are <em>you</em>
 doing? I&rsquo;ve been looking for you.&rdquo;</p>
 <p>Lola glanced over
