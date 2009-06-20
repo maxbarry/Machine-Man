@@ -2,51 +2,19 @@
 <h5>CHAPTER 
 FIFTEEN</h5>
 <p>I followed Lola
-into the recovery room and there he was. Carl. He sat on the edge of
-the bed, naked except for boxer shorts, flexing his arm. By which I
-mean <em>my</em> arm. It was the Protector: three independent axes of
-rotation, lots of exposed steel. 
-</p>
-<p></p>
-<p>To his credit, Carl
-looked mildly ashamed to see me. I would like to think he
-appreciated, at least on some level, that what he had done here was
-steal from me. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>, Carl, propped up
-on pillows. A sheet covered him up to his stomach. Above this, he was
-naked except for the bandages. 
-</p>
-<p>down. : above this,
-naked flesh. Carl.</p>
-<p></p>
-<p></p>
-<p>I had to say, Carl
-was ripped. He had muscles in places I&rsquo;d only seen in anatomy
-textbooks. It didn&rsquo;t make sense to me that somebody who put
-this much work into their body would want to hack parts of it off,
-but he seemed cheerful enough, giving me a tight grin as I walked in.</p>
-<p>&ldquo;Hi, Carl,&rdquo;
-I said.</p>
-<p>&ldquo;Hey.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Lola went straight
-to him and knelt down. &ldquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I said, &ldquo;Can
-I talk to you a second?&rdquo;</p>
+into the recovery room and there he was: Carl, sitting on the edge of
+the bed, naked but for boxer shorts, flexing his arm. By which I mean
+<em>my</em> arm. He was strapped into a Flexor: three feet long, very
+thin, hollow bands of delicate al-titanium alloy foil rods on four
+ball joints with independent axes of rotation. Its main advantage was
+it could reach in any direction, including behind you, and supported
+a variety of different hands. It also weighed only ten pounds, ideal
+for the user who hadn&rsquo;t yet upgraded the load-bearing capacity
+of his spine. It was essentially a trainer arm. But this did not
+change the fact that Carl should not have it.</p>
+<p>To his credit, he
+looked mildly ashamed. He stopped moving the arm, and his eyes
+shifted from mine, then back, and then his lips twitched, as if he
+wanted to smile, but thought maybe that would piss me off. This was a
+good call. Because in this moment, it was everything I could do not
+to kick Carl through the wall.</p>
