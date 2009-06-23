@@ -1,6 +1,6 @@
 <p>Page 70.</p>
 <p>&ldquo;Carl was in an accident,&rdquo;
-Lola said. She saw something about the way the Flexor was strapped
+Lola said. She saw something about the way the Versitor was strapped
 around Carl&rsquo;s shoulder she didn&rsquo;t like, and began fooling
 with it. &ldquo;He&rsquo;s not allowed to talk about it, but... well,
 obviously it was traumatic.&rdquo;</p>
