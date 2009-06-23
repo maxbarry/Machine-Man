@@ -3,43 +3,31 @@
 Cautery said. &ldquo;They&rsquo;re your parts.&rdquo; She spread her
 arms. &ldquo;What&rsquo;s to get? They&rsquo;re your parts.&rdquo;</p>
 <p>I nodded. &ldquo;My parts. Exactly.&rdquo;</p>
-<p>&ldquo;You know who I&rsquo;m mad at?&rdquo;
-said Cassandra Cautery. &ldquo;Dick.&rdquo;</p>
-<p>I blinked.</p>
-<p>&ldquo;Dick Peters. Your boss.&rdquo;</p>
-<p>&ldquo;Oh,&rdquo; I said. &ldquo;Right.
-Why?&rdquo;</p>
-<p>Cassandra Cautery leaned forward. We
+<p>&ldquo;I had a sister once. She used to
+borrow my clothes. I&rsquo;d be looking for this one particular belt,
+and she&rsquo;d walk in wearing it.&rdquo; She shook her head. We
 were in her office again. This time she was on the sofa. Her office
-had a leather sofa. I may not have mentioned that earlier. Also the
-office was also very large, one wall was glass, and the shelves were
-lined with thick red and green books. There was some kind of trophy
-acting as a bookend. &ldquo;You know it was Dick who authorized this
-procedure on Carl.&rdquo;</p>
+had a sofa. I may not have mentioned that earlier. It was green
+leather. Also her office was very spacious, one wall was glass, and
+the shelves were lined with thick red and green books. Some kind of
+trophy acted as a bookend on the top shelf. The place had a quiet,
+musty kind of feel I would not have naturally associated with
+Cassandra Cautery. &ldquo;Drove me insane. And that was just
+<em>clothes</em>.&rdquo; She sighed.
+&ldquo;You know who I&rsquo;m mad at?&rdquo;</p>
+<p>I nodded. &ldquo;Lola.&rdquo;</p>
+<p>&ldquo;Dick.&rdquo;</p>
+<p>I blinked, lost.</p>
+<p>&ldquo;Dick Peters. Your boss.&rdquo;</p>
+<p>&ldquo;Oh. Right. Why?&rdquo;</p>
+<p>Cassandra Cautery leaned forward. &ldquo;You
+know it was Dick who authorized this.&rdquo;</p>
 <p>I looked away, because this did not
 sound very true. &ldquo;No, I did not know that.&rdquo;</p>
-<p>&ldquo;Charlie,&rdquo; she said. &ldquo;Come
-here. Sit.&rdquo;</p>
-<p>&ldquo;I can&rsquo;t sit.&rdquo;</p>
-<p>&ldquo;I know your legs, Charlie, and
-you can sit.&rdquo;</p>
-<p>It was true. I could, if for some
-reason I felt the urge to collapse backward. But it seemed silly when
-I was already comfortably seated in the Contours harness. It must be
-a social thing.</p>
-<p>Cassandra Cautery patted the sofa
-beside her. &ldquo;Please.&rdquo;</p>
-<p>It was not easy. I essentially had to
-perform a controlled fall. The sofa caught me with a <em>whoof</em>,
-then creaked alarmingly until I shuffled down far enough to
-shift off most of the Contours weight.</p>
-<p>Cassandra put her hand on my thigh.
-This registered as a kind of non-specific tingling, like standing
-outside before a thunderclap. The Contours didn&rsquo;t have much in
-the way of pressure sensors down there. &ldquo;Charlie?&rdquo;</p>
-<p>&ldquo;Yes.&rdquo;</p>
-<p>&ldquo;We&rsquo;ll fix this. I want you
-to know that.&rdquo;</p>
-<p>&ldquo;How?&rdquo;</p>
-<p>She didn&rsquo;t say anything. But
-still, I felt comforted.</p>
+<p>&ldquo;It was.&rdquo; She put her hands
+together, as if about to pray. &ldquo;Charlie, I will fix this.
+You&rsquo;re my brain. Anything that upsets you, I will fix.&rdquo;</p>
+<p>&ldquo;How?&rdquo; 
+</p>
+<p>She didn&rsquo;t reply. But still, I
+felt comforted.</p>
