@@ -31,8 +31,8 @@ make some new ones. For Carl.&rdquo; She bit her lip. &ldquo;Do you
 think you would do that?&rdquo;</p>
 <p>&ldquo;Yes,&rdquo;
 I said. &ldquo;I think I can do that.&rdquo;</p>
-<p>She
-grinned. &ldquo;That&rsquo;s so great.&rdquo;</p>
+<p>She grinned.
+&ldquo;That&rsquo;s so great.&rdquo;</p>
 <p>&ldquo;Well.&rdquo;
 I shrugged.</p>
 <p>&ldquo;You&rsquo;re
