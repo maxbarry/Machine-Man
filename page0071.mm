@@ -54,6 +54,6 @@ around anyway. You just had open heart surgery.&rdquo;</p>
 <p>&ldquo;That was a month ago,&rdquo; she
 said, which surprised me, but I guess it was true. &ldquo;I&rsquo;m
 fine. <em>That</em> man...&rdquo; She pointed at Carl&rsquo;s
-door. &ldquo;Is <em>not</em>.&rdquo; She turned away.</p>
+door. &ldquo;Is <em>not</em>.&rdquo;</p>
 <p>&ldquo;Lola,&rdquo; I said. &ldquo;Wait.
 Don&rsquo;t go in there.&rdquo; But she did.</p>
