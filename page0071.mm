@@ -11,7 +11,7 @@ He needs help, that&rsquo;s why.&rdquo;</p>
 corridor, a guard coughed into his hand. I forced myself to lower my
 voice. &ldquo;This was not an
 accident.&rdquo;</p>
-<p>Lola&rsquo;s eyebrows flipped up. &ldquo;What
+<p>Lola&rsquo;s eyebrows flipped up. &ldquo;Why
 would you say that?&rdquo;</p>
 <p>&ldquo;Because nothing that happens
 here is an accident. Cassandra Cautery said&mdash;&rdquo;</p>
