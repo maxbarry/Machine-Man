@@ -26,16 +26,16 @@ remember that guy. &ldquo;Why?&rdquo;</p>
 <p>Cassandra Cautery leaned forward. &ldquo;You
 know it was Dick who authorized Carl&rsquo;s arms.&rdquo;</p>
 <p>I looked away, because this did not
-sound very true. &ldquo;No, I did not know that.&rdquo;</p>
+sound very true. &ldquo;No, I didn&rsquo;t know that.&rdquo;</p>
 <p>&ldquo;It was.&rdquo; Silence.
-&ldquo;Charlie. Charlie.&rdquo; I looked at her. She had her hands
-together, as if about to pray. &ldquo;I will fix this. You&rsquo;re
-my brain. Anything that upsets you, I&rsquo;ll fix.&rdquo;</p>
+&ldquo;Charlie.&rdquo; I looked at her. She had her hands together,
+as if about to pray. &ldquo;I will fix this. You&rsquo;re my brain.
+Anything that upsets you, I&rsquo;ll fix.&rdquo;</p>
 <p>&ldquo;How?&rdquo;</p>
 <p>&ldquo;Name it.&rdquo; She leaned back.
-&ldquo;I&rsquo;m serious. What do you want me to do?&rdquo;</p>
-<p>&ldquo;Anything?&rdquo;</p>
-<p>&ldquo;Anything.&rdquo;</p>
-<p>I eyed her. If there was deception
-here, I couldn&rsquo;t see it. I bit my lip. &ldquo;Well...&rdquo;
-And then I said something I&rsquo;m not very proud of.</p>
+&ldquo;What do you want me to do?&rdquo;</p>
+<p>&ldquo;Seriously?&rdquo;</p>
+<p>&ldquo;Seriously.&rdquo;</p>
+<p>I eyed her. She seemed genuine.
+&ldquo;Well...&rdquo; And then I said something I&rsquo;m not very
+proud of.</p>

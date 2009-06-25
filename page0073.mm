@@ -4,9 +4,9 @@ into the Glass Room. This was not the smartest idea, because I had
 been awake for twenty hours and could feel the adrenaline crash
 coming. But I didn&rsquo;t want to lie in that room, alone but for a
 dead potted plant, staring at the ceiling. I didn&rsquo;t want to
-wait for the ache to begin creeping into muscles I didn&rsquo;t have.
-Most of all, I didn&rsquo;t want to think about what I&rsquo;d just
-asked Cassandra Cautery to do.</p>
+wait for the inevitable ache to begin creeping into muscles I didn&rsquo;t
+have. Most of all, I didn&rsquo;t want to think about what I&rsquo;d
+just asked Cassandra Cautery to do.</p>
 <p>My lab assistants greeted me cordially,
 as always. I walked through to Lab 3, locked myself inside, switched
 on the halogen lights, and sat at a workstation. Spread across the
