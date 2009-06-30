@@ -18,11 +18,10 @@ nodded once. &ldquo;I&rsquo;ll take care of it,&rdquo; she said. I
 walked out of that room happy, thinking my problems were solved.</p>
 <p>But here I was wracked with guilt. The
 guy had no arms. Without my help, he would get, what, hospital
-prosthetics? Those were awful. You might as well strap flippers to
-your shoulders.</p>
+prosthetics? Those were awful. You might as well strap on flippers.</p>
 <p>I
 groaned. This was unbearable. I had to fix it. As logical as it was
-for me to act out of self-interest, a part of me knew it was wrong.
-And I knew what that part was. It was my brain&rsquo;s ventromedial
-prefrontal cortex. Guilt was highly localized there. And that, I
-suspected, meant it could be taken out.</p>
+for me to get Carl fired, a part of me knew it was wrong. And that
+part was my brain&rsquo;s ventromedial prefrontal cortex. It
+was the area responsible for guilt. Well, I was going to do something
+about that.</p>

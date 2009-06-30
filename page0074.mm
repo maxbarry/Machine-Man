@@ -39,11 +39,12 @@ that&rsquo;s so great.&rdquo;</p>
 <p>&ldquo;You&rsquo;re
 the best. I don&rsquo;t mean that like an expression.&rdquo; She
 kicked my Contours. This registered as a non-localized tingling, like
-I was standing outside in a thunderstorm. The hairs the back of neck
-stood up. &ldquo;I mean, you <em>are</em>
+I was standing outside in a thunderstorm. The hairs on the back of my
+neck stood up. &ldquo;I mean, you <em>are</em>
 the best, Charlie.&rdquo; She began backing away. &ldquo;You
 need your sleep. Talk tomorrow, okay?&rdquo;</p>
 <p>&ldquo;Okay.&rdquo; I went inside and
 sat on the bunk. I began to feel very guilty. Because what I&rsquo;d
 said about helping Carl, that was kind of a cheat. If Cassandra
-Cautery did what I&rsquo;d asked, Carl would not be around to help.</p>
+Cautery did what I&rsquo;d asked, Carl would not be around to be
+helped.</p>
