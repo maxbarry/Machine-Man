@@ -16,12 +16,11 @@ Carl was poison.</p>
 him. That was what I&rsquo;d said, in her office yesterday. She
 nodded once. I walked out of that room happy, thinking my problems
 were solved.</p>
-<p>But here I was wracked with guilt. The
+<p>But now I was wracked with guilt. The
 guy had no arms. Without my help, he would get, what, hospital
 prosthetics? Those were awful. You might as well strap on flippers.</p>
 <p>I
-groaned. This was unbearable. I had to fix it. As logical as it was
-for me to get Carl fired, a part of me knew it was wrong. And that
-part was my brain&rsquo;s ventromedial prefrontal cortex. It
-was the area responsible for guilt. Well, I was going to do something
-about that.</p>
+groaned. I had to fix this. As logical as it was for me to get Carl
+fired, a part of me knew it was wrong. And that part was my brain&rsquo;s
+ventromedial prefrontal cortex. It was the area responsible
+for guilt. Well, I was going to do something about that.</p>

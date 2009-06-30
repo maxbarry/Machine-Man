@@ -32,13 +32,14 @@ regret</em>. Because, honestly, how
 useful was it? It was like guilt: sure, from an evolutionary
 standpoint, you wanted to encourage social behavior amongst
 tribe members. But it wasn&rsquo;t great for any individual in
-particular. In an ideal world, everyone would feel guilty about
-treating you unfairly, but you&rsquo;d be able to screw over whomever
-you liked and have a solid night&rsquo;s sleep. I&rsquo;m not saying
-I wanted to be that person. That person is an asshole. I&rsquo;m just
-saying the reason we think he&rsquo;s an asshole is our brains have
-been imprinted with millennia-old ideas about tribal loyalty. And
-those ideas, I&rsquo;m not sure they still apply.</p>
+particular. In an ideal world,
+everyone would feel guilty about treating you unfairly, but you&rsquo;d
+be able to screw over whomever you liked and have a solid night&rsquo;s
+sleep. I&rsquo;m not saying I wanted to be that person. That person
+is an asshole. I&rsquo;m just saying the reason we think he&rsquo;s
+an asshole is our brains have been imprinted with millennia-old ideas
+about tribal loyalty. And those ideas, I&rsquo;m not sure they still
+apply.</p>
 <p>&ldquo;There was a
 kid in the cafeteria the other day,&rdquo; I said. &ldquo;He told me
 he admired my work. And I didn&rsquo;t know what to say. I didn&rsquo;t
