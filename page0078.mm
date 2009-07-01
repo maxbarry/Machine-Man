@@ -8,6 +8,48 @@
 <p></p>
 <p></p>
 <p></p>
+<p>&ldquo;I feel like we should bring some
+other people in on this,&rdquo; Jason said. &ldquo;If we&rsquo;re
+going to be talking about surgery.&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
+<p>&ldquo;You&rsquo;re right, though. It&rsquo;s
+dangerous to make destructive changes in an experimental project with
+limited resources.&rdquo;</p>
+<p>He nodded firmly. &ldquo;Exactly.&rdquo;</p>
+<p>&ldquo;And I only have one brain.&rdquo;</p>
+<p>&ldquo;Right.&rdquo; He leaned forward.
+&ldquo;There are things we could do with computer modeling&mdash;&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
+<p>&ldquo;But I take your point. It&rsquo;s
+not smart to make irreversible changes.&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&ldquo;Do you think there&rsquo;s an
+ethical problem with that?&rdquo;</p>
+<p>Jason looked at his monitor. &ldquo;What
+do you think?&rdquo;</p>
+<p>&ldquo;I don&rsquo;t think so,&rdquo; I
+said. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>injecting tetrodotoxin into your brain.
+Or 
+</p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p>&ldquo;Here you go,&rdquo; she said.
 &ldquo;Your arms.&rdquo;</p>
@@ -21,8 +63,8 @@ to a clinic or what?&rdquo;</p>
 <p>Cassandra Cautery was silent a moment.
 &ldquo;You remember, Charlie, we had a discussion about what to do
 with Carl.&rdquo;</p>
-<p>&ldquo;Of course,&rdquo; I said,
-irritated. &ldquo;And I asked you to fire him.&rdquo;</p>
+<p>&ldquo;Of course. And I asked you to
+fire him.&rdquo;</p>
 <p>&ldquo;You didn&rsquo;t say <em>fire</em>.
 You said <em>get rid of</em>.&rdquo;</p>
 <p>&ldquo;That&rsquo;s
@@ -86,114 +128,6 @@ off most of the Contours weight.</p>
 <p></p>
 <p></p>
 <p></p>
-<p>The brain&rsquo;s home of guilt. I was
-going to pay mine a visit, and shut that fucker down.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Guilt registered there; you could see
-it on fMRI scans. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>That was guilt&rsquo;s home in the
-brain. 
-</p>
-<p>Guilt registered there as hyperactivity</p>
-<p>That was where guilt localized in the
-brain. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>You could see it on fMRI scans. I was
-pretty sure I could locate mine. Then I could remove it.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>As logical as it
-was 
-</p>
-<p>I began to inch the Contours off the
-bed. 
-</p>
-<p></p>
-<p></p>
-<p>Guilt was hyperactivity of the 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>What if Lola found out? 
-</p>
-<p></p>
-<p>When I thought about Lola,  all I could
-see were her eyes. 
-</p>
-<p></p>
-<p></p>
-<p>all I could see were her eyes, swimming
-with confusion and 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>My brain was set on torturing me and it
-was immune to logic. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>But this guilt was unbearable. 
-</p>
-<p></p>
-<p>I
-would be crazy <em>not</em> to
-get rid of the guy. To not throw him out onto the street. With no
-arms.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>they were otherwise indistinguishable
-from the control group. 
-</p>
-<p>, while displaying no change in other
-emotive area</p>
-<p></p>
-<p>you would become less sensitive to
-guilt, while leaving your other social functions unaffected. They did
-some experiments with patients suffering from VMPFC damage, asked
-them to play social trust and betrayal games. The patients tended to
-donate less, betray other players more often, and prioritize their
-self-interest higher. Those are activities implied by lesser feelings
-of guilt.&rdquo;</p>
-<p></p>
-<p>We were mapping my emotions. 
-</p>
-<p></p>
-<p></p>
-<p>It was. Of course it was. I had checked
-the literature.</p>
-<p></p>
-<p></p>
 <p>&ldquo;That&rsquo;s guilt?&rdquo;</p>
 <p>&ldquo;It&rsquo;s activity in the
 ventromedial prefrontal cortex. Which the literature says is highly
@@ -236,36 +170,6 @@ said. &ldquo;Let&rsquo;s do it.&rdquo;</p>
 <p></p>
 <p></p>
 <p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>just like I would
-have been in his place, and I should have offered him a job or
-something, but I was rude by accident. 
-</p>
-<p>I was rude to him
-by accident. 
-</p>
-<p>I wish I&rsquo;d
-known what to say, because he was excited and 
-</p>
-<p>I know exactly 
-</p>
-<p>that kid was
-exactly like me. 
-</p>
-<p>I wish I&rsquo;d
-thought of something to say, because he was just excited</p>
-<p>now he probably
-thinks I&rsquo;m a dick, and 
-</p>
-<p></p>
-<p></p>
-<p></p>
 <p>As I waited for
 Jason&rsquo;s verdict, I realized I had acted this way toward him,
 too. I had crushed one of my legs in front of him, and hadn&rsquo;t
@@ -275,47 +179,6 @@ understand it was for science. But maybe he
 <p></p>
 <p></p>
 <p>...</p>
-<p></p>
-<p>Jason sounded a little tired. We had
-been at this for two hours.</p>
-<p>&ldquo;Moving on,&rdquo; said Jason.</p>
-<p>&ldquo;Happy,&rdquo; said a disembodied
-voice. &ldquo;Something you&rsquo;re looking forward to.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>they&rsquo;re not
-in your best interest.</p>
-<p>I realize this
-makes me sound like a complete asshole, but that&rsquo;s because you
-are social brain.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p> wasn&rsquo;t sure
-I wanted to keep that anyway. Then I thought of something. &ldquo;</p>
-<p></p>
-<p>&lt;&lt; Charlie is
-sorry about: Lola losing her heart. 
-</p>
-<p></p>
-<p>&rdquo;</p>
-<p>I waited. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>If I remembered right, guilt was highly
-localized there. You could see it on scans. 
-</p>
 <p></p>
 <p></p>
 </BODY>
