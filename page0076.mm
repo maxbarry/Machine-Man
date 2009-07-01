@@ -31,21 +31,21 @@ regret</em>. Because, really, what
 good was it? It was like guilt; effective at promoting social
 behavior amongst tribe members, but not great for the individual. I
 mean, in an ideal world, everyone would feel guilty about treating
-<em>you</em> unfairly, but
-you&rsquo;d be able to cheat your grandmother and get a solid night&rsquo;s
-sleep. I&rsquo;m not saying that&rsquo;s a great set of values. I&rsquo;m
-just saying, logically, that&rsquo;s what would work best for you.
-It&rsquo;s not coincidence that every well-paid person I&rsquo;ve
-ever met seems to possess an abnormally low guilt-regret index, is my
-point. Not that I&rsquo;m an expert on social behavior. But I have
-spent some time around Better Future managers, and I would like to
-plot that data set.</p>
+<em>you</em> unfairly,
+but you&rsquo;d be able to cheat your grandmother and get a solid
+night&rsquo;s sleep. I&rsquo;m not saying that&rsquo;s a great set of
+values. I&rsquo;m just saying, logically, that&rsquo;s what would
+work best for you. It&rsquo;s not coincidence that every well-paid
+person I&rsquo;ve ever met seems to possess an abnormally low
+guilt-regret index, is my point. Not that I&rsquo;m an expert on
+social behavior. But I have spent some time around Better Future
+managers, and I would like to plot that data set.</p>
 <p>&ldquo;There was a
 kid in the cafeteria the other day,&rdquo; I said. &ldquo;He told me
 he admired my work. And I didn&rsquo;t know what to say. He was just
 excited, but I kind of brushed him off. I wanted to say something.
-Like, you know, thanks. I wish I&rsquo;d been able to say something
-to that kid. Because he&rsquo;s probably a lot like me.&rdquo;</p>
+Like, you know, thanks. I wish I&rsquo;d known how to deal with that
+kid. Because he&rsquo;s probably a lot like me.&rdquo;</p>
 <p>There was silence.
 &ldquo;I think that&rsquo;s as close as we&rsquo;re going to get,&rdquo;
 Jason said. &ldquo;Let&rsquo;s try happy.&rdquo;</p>
