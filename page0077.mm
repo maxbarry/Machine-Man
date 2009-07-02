@@ -18,10 +18,10 @@ quotient of around two hundred. The VMPFC-impaired group scored 27.&rdquo;</p>
 differences noted in any other emotion.&rdquo; Jason peered at the
 screen. &ldquo;Oh. Wait. Envy&rsquo;s up.&rdquo;</p>
 <p>&ldquo;Envy?&rdquo;</p>
-<p>&ldquo;Actually, no, that&rsquo;s
-within the margin of error. Probably meaningless.&rdquo;</p>
-<p>&ldquo;Okay. Okay. So if my VMPFC is
-suppressed, I can expect to feel less guilty, but otherwise the
+<p>&ldquo;Actually... that&rsquo;s within
+the margin of error. Probably meaningless.&rdquo;</p>
+<p>&ldquo;Okay. So if my VMPFC was
+suppressed, I would expect to feel less guilty, but otherwise the
 same.&rdquo;</p>
 <p>&ldquo;A lot less guilty.&rdquo;</p>
 <p>&ldquo;Right,&rdquo; I said. &ldquo;A
@@ -29,10 +29,10 @@ lot less guilty.&rdquo;</p>
 <p>Jason glanced at me. &ldquo;I&rsquo;m
 not sure how you&rsquo;d suppress it, though. I mean... without
 actually... cutting it out.&rdquo;</p>
-<p>An awkward silence fell. I remembered I
-had crushed my right leg in front of Jason. He had tried to stop me.
-We had never really talked about that. &ldquo;I suppose that would be
-kind of drastic.&rdquo;</p>
+<p>An awkward silence descended. I
+remembered I had crushed my right leg in front of Jason. He had tried
+to stop me. We had never really talked about that. &ldquo;I suppose
+that would be kind of drastic.&rdquo;</p>
 <p>&ldquo;Kind of irreversible.&rdquo;</p>
 <p>&ldquo;Although I wouldn&rsquo;t regret
 it.&rdquo; This was a joke. Jason stared at me. &ldquo;Because of the
@@ -46,7 +46,7 @@ a saying.&rdquo;</p>
 think the message there is you should behave in a manner that would
 not cause regret in a reasonable person. Not that you should
 surgically excise the capacity for regret from your brain.&rdquo;</p>
-<p>I pondered this. He may have a point.</p>
+<p>I pondered this.</p>
 <p>&ldquo;Dr. Neumann, there are some
 really great things we can do with computer modeling. Or if you want
 to leap ahead to mice&mdash;&rdquo;</p>
