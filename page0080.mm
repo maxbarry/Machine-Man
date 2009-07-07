@@ -31,19 +31,19 @@ you feel them?&rdquo; She moved my hand lower. I touched DARING.</p>
 I was wearing a glove, because earlier I had attached some
 remote-sensing digits for electronic work, and I didn&rsquo;t want to
 knock them on things. &ldquo;Can you feel... with this one?&rdquo;</p>
-<p>&ldquo;I&rsquo;m... not sure,&rdquo; I
-said. &ldquo;They mainly convert electromagnetic signals into
-language my nerves can understand. For example, the radio spectrum
-around three gigahertz feels like candy floss.&rdquo;</p>
+<p>&ldquo;I&rsquo;m... not sure. They
+mainly convert electromagnetic signals into language my nerves can
+understand. For example, the radio spectrum around three gigahertz
+feels like candy floss.&rdquo;</p>
 <p>&ldquo;What do I feel like?&rdquo; She
 moved my hand up, toward the side of the sweater that said VISION.
 Her eyes locked onto mine. It was a highly charged moment. Then my
-hand twitched and I accidentally jabbed my fingers into her sternum.</p>
+hand twitched and I jabbed my fingers into her sternum.</p>
 <p>&ldquo;Ow!&rdquo;</p>
 <p>&ldquo;I&rsquo;m sorry!&rdquo; I pulled
 back my hand. &ldquo;I didn&rsquo;t...&rdquo;</p>
 <p>&ldquo;It&rsquo;s okay.&rdquo; She
-pressed herself against me. &ldquo;Try again.&rdquo;</p>
+pressed closer. &ldquo;Try again.&rdquo;</p>
 <p>&ldquo;Um,&rdquo; I said, distracted.
 Because pulling my hand away from Lola&rsquo;s chest, that had been
 harder than it should have.</p>
