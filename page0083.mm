@@ -1,110 +1,53 @@
-<p>Page 82.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;Taken care of.&rdquo; She
-smiled. &ldquo;That&rsquo;s what you wanted, right?&rdquo;</p>
-<p>&ldquo;Yes,&rdquo; I said. &ldquo;But
-what arms did you give him?</p>
-<p>I nodded. &ldquo;Did you give him some
-other arms? 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Lola asks Charlie for
-something. BF won&rsquo;t like it. But he agrees. Then Cass Caut is
-pissed. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; They go on
-the run because BF wants to kill Lola. And the reason they want to
-kill Lola is they put something in her chest, something important,
-and if anyone finds out what they did, BF is in a lot of trouble.
-It&rsquo;s BF&rsquo;s premiere product. Maybe it makes Lola kind of
-immortal. It&rsquo;s incredibly valuable. They&rsquo;ll do anything
-to get it back. She&rsquo;s never meant to leave the compound. It&rsquo;s
-meant for soldiers who sneak in and EMP enemy installations. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt; Maybe Lola
-is MAGNETIC. If Charlie gets too close to her, he sticks. That&rsquo;s
-pretty awesome. Maybe when she gets emotional, something happens. Oh
-yeah. Can she pull metal out of the walls, something like that? Maybe
-she&rsquo;s an EMP?? Fuck yeah. She gets emotional, she shorts
-everything out. That&rsquo;s fucking awesome. Charlie&rsquo;s trying
-to bear her away. &ldquo;Don&rsquo;t get excited.&rdquo; &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt; So Charlie
-and Lola are getting to know each other, starting to get hot and
-heavy, and he feels drawn to her, as if she is magnetic, then the
-phone rings. CC says he&rsquo;s needed at work. She&rsquo;s pissed. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Lola signed
-some kind of disclaimer, of course, with hidden clauses. BF is
-interested in zombies. Lola is technically a zombie... she&rsquo;s
-kept alive by mechanics. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;Charlie,&rdquo; she said. &ldquo;Come
-here. Sit.&rdquo;</p>
-<p>&ldquo;I can&rsquo;t sit.&rdquo;</p>
-<p>&ldquo;You can. I know your legs,
-Charlie.&rdquo;</p>
-<p>She was right: I could sit, if for some
-reason I felt the urge to collapse backward. But it seemed a silly
-thing to do when I was comfortably seated in the Contours&rsquo;
-harness.</p>
-<p>Cassandra Cautery patted the sofa
-beside her. &ldquo;Please.&rdquo;</p>
-<p>It must be a social thing. I 
-</p>
-<p></p>
-<p>It was not easy. I essentially had to
-perform a controlled fall. The sofa caught me with a <em>whoof</em>,
-then groaned like a ship at sea until I shuffled down to shift
-off most of the Contours weight.</p>
-<p>Cassandra put her hand on my thigh. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<p>Page 83.</p>
+<p>&ldquo;The first thing I&rsquo;d like
+to lay on the table,&rdquo; Cassandra Cautery said when the elevator
+doors had closed, &ldquo;just so it&rsquo;s out there, is that we&rsquo;ve
+made a fairly significant investment in Lola Banks. That life-saving
+operation did not come cheap.&rdquo;</p>
+<p>&ldquo;The life-saving operation she
+needed after Carl shot her,&rdquo; I said. &ldquo;That&rsquo;s the
+one you mean.&rdquo;</p>
+<p>Her eyes remained fixed on the floor
+numbers ticking over on the elevator panel screen. &ldquo;The second
+thing is we&rsquo;ve made a significant investment in <em>you</em>. In
+providing the resources you need, to do what you want to do.&rdquo;</p>
+<p>&ldquo;There&rsquo;s something in
+Lola&rsquo;s chest. Something that&rsquo;s not a heart. What is it?&rdquo;</p>
+<p>&ldquo;Charlie, Charlie,&rdquo; she
+said, and there was something odd about her tone: a tightness I had
+not heard before. &ldquo;I&rsquo;ve tried to do the right thing by
+you. I really have. When you asked me to dispose of Carl, did I
+quibble? Did I say, <em>Gee, that&rsquo;s a little </em><em>heartless,
+he&rsquo;s a ten-year employee with no arms?</em>
+No. I did not.&rdquo;</p>
+<p>&ldquo;Fire,&rdquo;
+I said.</p>
+<p>She glanced at me.
+&ldquo;What?&rdquo;</p>
+<p>&ldquo;Fire
+Carl. I asked you to <em>fire</em>
+him.&rdquo;</p>
+<p>&ldquo;Actually,
+your exact words were <em>get rid of</em>.&rdquo;</p>
+<p>&ldquo;That&rsquo;s
+the same thing.&rdquo;</p>
+<p>She hesitated. &ldquo;Of
+course it is. But the point is, I&rsquo;ve tried my hardest to make
+this a warm, supportive environment for you. I have sheltered you
+from the many painful decisions that had to be made to provide this
+environment. And there have been many, Charlie. There have been
+many.&rdquo;</p>
+<p>The elevator doors
+opened. We were not on the labs sublevel. We were somewhere I had
+never been.</p>
+<p>&ldquo;Well, now I
+can&rsquo;t shelter you.&rdquo; I finally realized what that
+tightness was in Cassandra Cautery&rsquo;s voice. It was nerves. &ldquo;Now
+we&rsquo;re all going to have a little reality check.&rdquo;</p>
+<p>I stared at the
+wall opposite. On it hung a huge, ornately-framed mirror; to one side
+was a little table bearing a lamp and a vase of white flowers, and to
+the other was a life-sized statue that may have been some Roman god.</p>
+<p>&ldquo;Time to meet
+the boss,&rdquo; said Cassandra Cautery. She gestured. &ldquo;After
+you.&rdquo;</p>
