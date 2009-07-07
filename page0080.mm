@@ -55,93 +55,92 @@ said. &ldquo;Come on. Let me see your fingers.&rdquo;</p>
 &ldquo;Wait. My fingers are attracted to you.&rdquo;</p>
 <p>&ldquo;It&rsquo;s mutal.&rdquo; She
 reached for them again. &ldquo;Stop teasing.&rdquo;</p>
-<p>&ldquo;No, you don&rsquo;t understand.
-Not romantically.&rdquo;</p>
+<p>&ldquo;You don&rsquo;t understand. Not
+romantically.&rdquo;</p>
 <p>She looked at me, confused. Then she
-realized what I meant, and stepped back. As she did, I rocked
-backward a little, as if I had been braced against an invisible force
-I hadn&rsquo;t even noticed until it was gone.</p>
+realized what I meant, and she stepped back. As she did, I rocked
+backward a little, as if I had been bracing myself against a force
+too subtle to notice until it was gone.</p>
 <p>&ldquo;Did you feel that?&rdquo;</p>
-<p>&ldquo;I... I don&rsquo;t know. What is
+<p>&ldquo;I... don&rsquo;t know. What is
 it?&rdquo;</p>
-<p>&ldquo;I&rsquo;m not sure.&rdquo; I
-backed away.</p>
+<p>&ldquo;I&rsquo;m not sure.&rdquo;</p>
 <p>&ldquo;Charlie. I&rsquo;m scared.&rdquo;</p>
 <p>&ldquo;It&rsquo;s okay,&rdquo; I said,
 although I didn&rsquo;t know if that was true. &ldquo;Wait here. I&rsquo;ll
-be right back. With a scanner.&rdquo;</p>
+get a scanner.&rdquo;</p>
 <p>&ldquo;Don&rsquo;t leave me.&rdquo; She
-clasped her hands, her eyes filling with tears. &ldquo;What did they
-put in me?&rdquo;</p>
-<p>&ldquo;We&rsquo;ll find out.&rdquo;</p>
-<p>I thought she might break down. And
-then we would have a problem, because I wasn&rsquo;t sure I could
-move within two feet of her without doing damage to one of us.</p>
-<p>Lola sucked in a breath and nodded.
+clasped her hands. &ldquo;What did they put in me?&rdquo;</p>
+<p>&ldquo;I&rsquo;ll find out.&rdquo;</p>
+<p>Her eyes filled with tears. She was
+about to break down. And then we would have a problem, because I
+wasn&rsquo;t sure I could move within two feet of her without
+damaging one of us. But she sucked in a quavering breath and nodded.
 &ldquo;Hurry.&rdquo;</p>
 <p>Page 82.
 THURSDAY</p>
 <p>I hit the button for the elevator and
-waited. It took so long I was tempted to take a more express route,
-like leaping out a window and walking back in through the lobby.
-Because I could do that. But that would be a bad idea for the same
-reason I wasn&rsquo;t walking Lola Banks to the labs: it would give
-away that something was up.</p>
+bounced up and down in the Contours while I waited. I was tempted to
+take an express route, like leaping out a window and walking back in
+through the lobby. Because I could do that. But that would be a bad
+idea for the same reason I wasn&rsquo;t walking Lola Banks to the
+labs: it would let everyone around me know that something was up.</p>
 <p>Of course, I was being stupid again. I
 was assuming that Lola&rsquo;s suite was private. And this was
 clearly not the case, because when the elevator finally arrived, it
-had Cassandra Cautery in it. &ldquo;Hello, Charlie,&rdquo; she said.
-&ldquo;Can I give you some advice?&rdquo;</p>
-<p>Page 82.
+had Cassandra Cautery in it. &ldquo;Charlie,&rdquo; she said. &ldquo;Can
+we chat?&rdquo;</p>
+<p>Page 83.
 FRIDAY</p>
-<p></p>
-<p></p>
-<p></p>
-<p>Some time later, when I finally dragged
-myself out of Lola&rsquo;s suite, I came around a corner to find
-Cassandra Cautery standing outside the Glass Room, her arms folded.
-This gave me a nasty shock, because I had been thinking very
-pleasant, Lola-related thoughts.</p>
-<p>&ldquo;Look who&rsquo;s finally showing
-up for work,&rdquo; said Cassandra Cautery. &ldquo;It&rsquo;s almost
-noon.&rdquo;</p>
-<p>I stopped. I never knew whether I
-should lower the Contours when in conversation with Cassandra
-Cautery. It felt wrong to tower over her, but I didn&rsquo;t want to,
-well, condescend. &ldquo;Does that matter?&rdquo;</p>
-<p>&ldquo;I don&rsquo;t know, Charlie.&rdquo;
-She put her hands on her hips. &ldquo;Does it?&rdquo;</p>
-<p>&ldquo;I was just&mdash;&rdquo;</p>
-<p>&ldquo;I know what you were just. And I
-have to tell you, Charlie, I did not authorize a six hundred thousand
-dollar operation so that woman could steal you away from your work. I
-did not.&rdquo;</p>
-<p>I was too confused to speak. If I had
-to characterize Cassandra Cautery&rsquo;s behavior, I would have said
-<em>jealous</em>. But that made no
-sense. She had no romantic feelings for me. I would bet my life on
-that. But I didn&rsquo;t know what else this could be.</p>
-<p>She walked toward me. She did this very
-deliberately, as if we were surrounded by explosives, and a false
-move could set them off. &ldquo;This relationship only works if we
-trust each other, Charlie. Do you understand that?&rdquo;</p>
-<p>&ldquo;Not really,&rdquo; I said. &ldquo;What
-relationship?&rdquo;</p>
-<p></p>
-<p></p>
-<p>That&rsquo;s the only way.&rdquo; 
-</p>
-<p>Then she walked away.</p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page 81.
-FRIDAY</p>
-<p>At first I put the conversation with
-Cassandra Cautery out of my mind for the rest of the day, because it
-was too bizarre to process. But as I worked, unease stole into my
-body. Eventually I pushed myself away from my computer and its
-virtual models and stared at the ceiling tiles. After a while, I
-figured it out. Cassandra Cautery was mad at Lola. I didn&rsquo;t
-know why. But that was not a good situation. And the more I thought
-about it, the more I thought it was not a safe one.</p>
+<p>&ldquo;The first thing I&rsquo;d like
+to lay on the table,&rdquo; Cassandra Cautery said when the elevator
+doors had closed, &ldquo;just so it&rsquo;s out there, is that we&rsquo;ve
+made a fairly significant investment in Lola Banks. That life-saving
+operation did not come cheap.&rdquo;</p>
+<p>&ldquo;The life-saving operation she
+needed after Carl shot her,&rdquo; I said. &ldquo;That&rsquo;s the
+one you mean.&rdquo;</p>
+<p>Her eyes remained fixed on the floor
+numbers ticking over on the elevator panel screen. &ldquo;The second
+thing is we&rsquo;ve made a significant investment in <em>you</em>. In
+providing the resources you need, to do what you want to do.&rdquo;</p>
+<p>&ldquo;There&rsquo;s something in
+Lola&rsquo;s chest. Something that&rsquo;s not a heart. What is it?&rdquo;</p>
+<p>&ldquo;Charlie, Charlie,&rdquo; she
+said, and there was something odd about her tone: a tightness I had
+not heard before. &ldquo;I&rsquo;ve tried to do the right thing by
+you. I really have. When you asked me to dispose of Carl, did I
+quibble? Did I say, <em>Gee, that&rsquo;s a little </em><em>heartless,
+he&rsquo;s a ten-year employee with no arms?</em>
+No. I did not.&rdquo;</p>
+<p>&ldquo;Fire,&rdquo;
+I said.</p>
+<p>She glanced at me.
+&ldquo;What?&rdquo;</p>
+<p>&ldquo;Fire
+Carl. I asked you to <em>fire</em>
+him.&rdquo;</p>
+<p>&ldquo;Actually,
+your exact words were <em>get rid of</em>.&rdquo;</p>
+<p>&ldquo;That&rsquo;s
+the same thing.&rdquo;</p>
+<p>She hesitated. &ldquo;Of
+course it is. But the point is, I&rsquo;ve tried my hardest to make
+this a warm, supportive environment for you. I have sheltered you
+from the many painful decisions that had to be made to provide this
+environment. And there have been many, Charlie. There have been
+many.&rdquo;</p>
+<p>The elevator doors
+opened. We were not on the labs sublevel. We were somewhere I had
+never been.</p>
+<p>&ldquo;Well, now I
+can&rsquo;t shelter you.&rdquo; I finally realized what that
+tightness was in Cassandra Cautery&rsquo;s voice. It was nerves. &ldquo;Now
+we&rsquo;re all going to have a little reality check.&rdquo;</p>
+<p>I stared at the
+wall opposite. On it hung a huge, ornately-framed mirror; to one side
+was a little table bearing a lamp and a vase of white flowers, and to
+the other was a life-sized statue that may have been some Roman god.</p>
+<p>&ldquo;Time to meet
+the boss,&rdquo; said Cassandra Cautery. She gestured. &ldquo;After
+you.&rdquo;</p>
