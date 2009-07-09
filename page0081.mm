@@ -3,7 +3,8 @@
 said. &ldquo;Come on. Let me see your fingers.&rdquo;</p>
 <p>I pulled my hand out of her reach.
 &ldquo;Wait. My fingers are attracted to you.&rdquo;</p>
-<p>&ldquo;It&rsquo;s mutal. Stop teasing.&rdquo;</p>
+<p>&ldquo;It&rsquo;s mutual. Stop
+teasing.&rdquo;</p>
 <p>&ldquo;You don&rsquo;t understand. Not
 romantically.&rdquo;</p>
 <p>Lola looked confused. Then she realized
