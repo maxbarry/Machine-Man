@@ -17,45 +17,44 @@ a summer rain&mdash;that army could do some damage.&rdquo;</p>
 <p>&ldquo;Charlie has
 some interesting spine work in the pipeline,&rdquo; said Cassandra
 Cautery. &ldquo;I should get you an updated report.&rdquo;</p>
-<p>&ldquo;But I&rsquo;ll
+<p>&ldquo;And I&rsquo;ll
 tell you what really excites me. The after-sales support. Now that&rsquo;s
-some serious vendor lock-in. We outfit a military with Better Future
-Combat Augmentations, they&rsquo;re going to need servicing.
-Training. Upgrades! They&rsquo;ll live and die on our bug fixes. I
-mean that literally. It&rsquo;s a never-ending revenue stream.&rdquo;</p>
+some vendor lock-in. We outfit a military with Better Future Combat
+Augmentations, they&rsquo;re going to need servicing. Training.
+Upgrades! They&rsquo;ll live and die on our bug fixes. I mean that
+literally. It&rsquo;s a never-ending revenue stream.&rdquo;</p>
 <p>&ldquo;I liked
-<em>Bioreplacement Technology</em>,&rdquo; said Cassandra Cautery.
-&ldquo;What happened to that?&rdquo;</p>
+<em>Better Future Bioreplacement Technology</em>,&rdquo; said Cassandra
+Cautery. &ldquo;What happened to that?&rdquo;</p>
 <p>&ldquo;Marketing,&rdquo;
 said the Manager. &ldquo;Didn&rsquo;t test as well. People are
-uncomfortable with the idea of replacing. They prefer to add.&rdquo;</p>
+uncomfortable with the concept of replacing. They prefer to add.&rdquo;</p>
 <p>&ldquo;Ah.&rdquo;</p>
 <p>&ldquo;Obviously
-this is all off in the distance. We have a lot of hard yards to cover
-first, Charlie. A lot of quality assurance. A lot of in-house
-testing.&rdquo;</p>
+this is all long-term. We have a lot of hard yards to cover first,
+Charlie. A lot of quality assurance to go through. In-house testing.&rdquo;</p>
 <p>I said, &ldquo;I
 don&rsquo;t want to be a super-solder.&rdquo;</p>
 <p>Cassandra Cautery
 smiled and tried to hide it. The Manager said, &ldquo;Of course you
-don&rsquo;t! And I don&rsquo;t want you to be. You&rsquo;re a
+don&rsquo;t. And I don&rsquo;t want you to be! You&rsquo;re a
 thinker, Charlie. Your role is hands-off.&rdquo;</p>
 <p>&ldquo;So to
 speak,&rdquo; I said. This was a quip. I had become a bit of a
 quipper, since spending time with Lola. She would have appreciated
-this one.</p>
-<p>&ldquo;Uh, what I
-mean,&rdquo; said the Manager, &ldquo;is there&rsquo;s no need for
-you to put yourself through the testing process. We have people for
-that. Volunteers, eager to count themselves amongst the first
-recipients of a Better Future Combat Augmentation.&rdquo;</p>
+this one, I think.</p>
+<p>&ldquo;What I
+mean,&rdquo; said the Manager, &ldquo;is there&rsquo;s no need to put
+yourself through the testing process. We have people for that. Test
+subjects. We give them one Better Future Combat Augmentation each,
+let them work through the kinks.&rdquo;</p>
 <p>I was already
 shaking my head. &ldquo;I don&rsquo;t want to make parts for other
-people. I&rsquo;m building parts for me. If you want products, well,
-I guess once I&rsquo;m further advanced in my project, and know from
-my own testing what works, I could look at military applications. But
-that&rsquo;s a long way off. Maybe years.&rdquo;</p>
+people. I just want to rebuild myself.&rdquo; Cassandra Cautery
+inhaled, so I added: &ldquo;And I guess I know you need a product at
+some stage. But right now, I&rsquo;m still experimenting. On me.
+That&rsquo;s what this project is about. Me.&rdquo;</p>
 <p>The Manager
-scratched his ear. &ldquo;Well, you misunderstand me a little. These
-in-house test subjects, they&rsquo;re not something I&rsquo;m
-proposing. We&rsquo;ve already begun.&rdquo;</p>
+scratched his ear. &ldquo;Well, Charlie, that&rsquo;s not completely
+realistic. These in-house tests, they&rsquo;re not something I&rsquo;m
+proposing. They&rsquo;ve already begun.&rdquo;</p>
