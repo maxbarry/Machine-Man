@@ -4,8 +4,8 @@ led Cassandra Cautery and I to what I can only call a sitting room. I
 say this as someone who is not totally sure what a sitting room is. I
 mean something that looked stolen from an 18th Century Victorian
 mansion: heavy drapes, busy wallpaper, and chairs with curving,
-detailed legs. Turned, I think is the word. That was the room:
-turned. I felt elegant just being here.</p>
+detailed legs. Turned, I think is the word. I felt elegant just being
+here.</p>
 <p>&ldquo;You know who
 we&rsquo;re meeting,&rdquo; said Cassandra Cautery, once the girl had
 gently closed the door on us. This was not posed as a question,
