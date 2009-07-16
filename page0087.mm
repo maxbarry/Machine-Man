@@ -31,7 +31,7 @@ Didn&rsquo;t test as well. People are uncomfortable with the concept
 of replacing. They prefer to add.&rdquo;</p>
 <p>&ldquo;Ah.&rdquo;</p>
 <p>I said, &ldquo;I
-don&rsquo;t want to be a super-solder.&rdquo;</p>
+don&rsquo;t want to be a super-soldier.&rdquo;</p>
 <p>Cassandra Cautery
 smiled. The Manager said, &ldquo;Of course you don&rsquo;t! And I
 don&rsquo;t want you to be. You&rsquo;re a thinker, Dr. Neumann. Your
