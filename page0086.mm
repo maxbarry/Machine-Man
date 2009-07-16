@@ -37,10 +37,10 @@ your project from the very beginning. We have our fingers in many
 pies, of course, a large number of very speculative pies, but yours
 is the one that captures my imagination. You know what I see? I see a
 man taking a stand. A man who refuses to let himself be defined by
-anyone or anything else. Nature dealt you a hand, Charlie, and you,
-you tossed it back. You said no. You said: <em>I</em> decide who I am.
-I decide the limit of my capabilities. I will be not what I was made,
-but what I make.&rdquo;</p>
+anyone or anything else. Nature dealt you a hand, and you, you tossed
+it back. You said no. You said: <em>I</em> decide who I am. I decide
+the limit of my capabilities. I will be not what I was made, but what
+I make.&rdquo;</p>
 <p>&ldquo;That&rsquo;s
 it,&rdquo; I said. &ldquo;That&rsquo;s it exactly.&rdquo; I wondered
 if I had got the Manager all wrong. Maybe he was like me:
