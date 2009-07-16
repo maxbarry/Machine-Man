@@ -2,6 +2,9 @@
 <p>FRIDAY</p>
 <p></p>
 <p></p>
+<p>&lt;&lt; Describing
+weapons.  &gt;&gt;</p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
