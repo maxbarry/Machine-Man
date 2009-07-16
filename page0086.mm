@@ -32,20 +32,19 @@ again.</p>
 <p>The Manager walked
 to the window and drew back the drapes. I squinted against the sudden
 glare. I could barely make out his face. &ldquo;I have to tell you,
-Dr. Neumann, it&rsquo;s a thrill to finally meet you. I&rsquo;ve been
-across your project from the beginning. And while we obviously have
-our fingers in many pies, a large number of very speculative pies,
-yours, Charlie, is the one that captures my imagination. You know
-what I see? I see a man taking a stand. A man who refuses to let
-himself be defined by anyone or anything but himself. Nature dealt
-you a hand, Charlie, and you, for the first time in history, you
-tossed it back. You said no. You said: <em>I</em> decide who I am. I
-decide the limit of my capabilities. I will be not what I was made,
+Dr. Neumann, it&rsquo;s a thrill to meet you. I&rsquo;ve been across
+your project from the very beginning. We have our fingers in many
+pies, of course, a large number of very speculative pies, but yours
+is the one that captures my imagination. You know what I see? I see a
+man taking a stand. A man who refuses to let himself be defined by
+anyone or anything else. Nature dealt you a hand, Charlie, and you,
+you tossed it back. You said no. You said: <em>I</em> decide who I am.
+I decide the limit of my capabilities. I will be not what I was made,
 but what I make.&rdquo;</p>
 <p>&ldquo;That&rsquo;s
 it,&rdquo; I said. &ldquo;That&rsquo;s it exactly.&rdquo; I wondered
 if I had got the Manager all wrong. Maybe he was like me:
 misunderstood.</p>
 <p>&ldquo;I could not
-be prouder to count myself as one of your supporters.&rdquo; He put
-one hand on my shoulder. &ldquo;So. Let&rsquo;s talk super-soldiers.&rdquo;</p>
+be prouder to count myself as one of your supporters.&rdquo; He put a
+hand on my shoulder. &ldquo;So. Let&rsquo;s talk super-soldiers.&rdquo;</p>
