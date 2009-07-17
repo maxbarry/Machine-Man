@@ -21,31 +21,29 @@ wants.&rdquo;</p>
 <p>&ldquo;Of course.
 That&rsquo;s what I&mdash;&rdquo;</p>
 <p>&ldquo;What Cassie
-means is that the time when you were this company&rsquo;s only
-design-capable employee, we see that as having passed. That&rsquo;s a
-credit to you, by the way. You should be proud of the way your people
-have picked up your skills and knowledge. It means we can move you
-into an area even better suited to your unique skills and
-experience.&rdquo;</p>
+means is that the time has passed when you were this company&rsquo;s
+only design-capable employee. That&rsquo;s a credit to you, by the
+way. You should be proud of the way your people have picked up your
+skills and knowledge. It means we can move you into an area even
+better suited to your unique skills and experience.&rdquo;</p>
 <p>My
 brain said: <em>Lola has an Augmentation</em>.
-That was all it had so far. It was still trying to reconcile this
-with the fact that she hadn&rsquo;t told me about it. Did Lola not
-trust me? How could she talk to the company and not me?</p>
+That was all it had so far. It was still trying to figure out why she
+hadn&rsquo;t told me about it. Did Lola not trust me? How could she
+talk to the company and not me?</p>
 <p>&ldquo;Our first
 test subjects... well, they experienced some issues,&rdquo; said the
-Manager. &ldquo;Stresses. Psychotic breaks. That kind of thing. It
-was a surprise, since you didn&rsquo;t demonstrate any such symptoms.
-It got us thinking about the psychology. We decided that you, Dr.
-Neumann, would be absolutely perfect at guiding these people through
-the process. Teaching them that life really is better with an
-Augmentation. I mean, look at you! You&rsquo;re inspiring. I
-sincerely believe you could uplift and inspire our test subjects
-about life with an Augmentation.&rdquo; Behind him, the sun moved
-behind a cloud. &ldquo;Especially those who don&rsquo;t know they
-have one.&rdquo;</p>
+Manager. &ldquo;Post-traumatic stresses. Psychotic breaks. That kind
+of thing. It was a real surprise, since you hadn&rsquo;t demonstrated
+any such symptoms. It got us thinking about the psychology. And what
+we decided is that you, Dr. Neumann, would be absolutely terrific at
+guiding these people through the recovery process. I mean, look at
+you! You&rsquo;re inspiring. I&rsquo;m sure you can greatly assist
+our test subjects adjust to life with an Augmentation.&rdquo; Behind
+him, the sun moved behind a cloud. &ldquo;Especially... well,
+especially the test subject who doesn&rsquo;t know she has one.&rdquo;</p>
 <p>Because the logical
 part of my brain was occupied, it did nothing to stop the raw,
-instinctive jolt of hostility that burst through my body. That&rsquo;s
-my explanation, anyway. My Contours twitched, and I kicked the
+instinctive jolt of rage that burst through my body. That&rsquo;s my
+explanation, anyway, for why my Contours twitched, and I kicked the
 Manager through the window.</p>
