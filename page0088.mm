@@ -10,8 +10,8 @@ fool to ignore the commercial possibilities. And I hope I&rsquo;m not
 a fool.&rdquo; He smiled again.</p>
 <p>&ldquo;The thing
 is, Charlie, they&rsquo;re not really your parts,&rdquo; said
-Cassandra Cautery. She was somewhere behind me. &ldquo;They&rsquo;re
-the company&rsquo;s.&rdquo;</p>
+Cassandra Cautery, from somewhere behind me. &ldquo;They&rsquo;re the
+company&rsquo;s.&rdquo;</p>
 <p>The Manager
 chuckled. &ldquo;Nobody&rsquo;s talking about taking away your
 parts.&rdquo; His eyes moved at Cassandra Cautery, and she closed her
@@ -33,15 +33,17 @@ hadn&rsquo;t told me about it. Did Lola not trust me? How could she
 talk to the company and not me?</p>
 <p>&ldquo;Our first
 test subjects... well, they experienced some issues,&rdquo; said the
-Manager. &ldquo;Post-traumatic stresses. Psychotic breaks. That kind
-of thing. It was a real surprise, since you hadn&rsquo;t demonstrated
-any such symptoms. It got us thinking about the psychology. And what
-we decided is that you, Dr. Neumann, would be absolutely terrific at
-guiding these people through the recovery process. I mean, look at
-you! You&rsquo;re inspiring. I&rsquo;m sure you can greatly assist
-our test subjects adjust to life with an Augmentation.&rdquo; Behind
-him, the sun moved behind a cloud. &ldquo;Especially... well,
-especially the test subject who doesn&rsquo;t know she has one.&rdquo;</p>
+Manager. His tie matched the drapes. I wondered if that could be
+coincidence. &ldquo;Post-traumatic stresses. Psychotic breaks. That
+kind of thing. It was a real surprise, since you hadn&rsquo;t
+demonstrated any such symptoms. It got us thinking about the
+psychology. And what we decided is that you, Dr. Neumann, would be
+absolutely terrific at guiding these people through the recovery
+process. I mean, look at you! You&rsquo;re inspiring. You could work
+wonders assisting our test subjects adjust to life with an
+Augmentation.&rdquo; Behind him, the sun moved behind a cloud.
+&ldquo;Especially... well, that particular test subject who doesn&rsquo;t
+know she has one.&rdquo;</p>
 <p>Because the logical
 part of my brain was occupied, it did nothing to stop the raw,
 instinctive jolt of rage that burst through my body. That&rsquo;s my
