@@ -1,41 +1,17 @@
 <p>Page 91.</p>
-<p>( WEDNESDAY )</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p>I once did one of
-those personality tests.</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; OK: The
-Manager says they&rsquo;re interested in making super soldiers. He
-says Lola&rsquo;s got an EMP in her chest. Explains how it works. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-I want to end here with Charlie busting the fuck out, don&rsquo;t I?
-I think so. I think Charlie says he&rsquo;s got to get back to Lola,
-and the Manager says Lola is taken care of. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-I think the Manager should make it very clear to Charlie that there&rsquo;s
-only one way out here. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-Charlie leaps out through the drapes. They protect him from shattered
-glass. Then he grabs Lola and they run off. I think he cleans out the
-Repo of parts, too. Maybe some guards shoot at him. It&rsquo;s a cool
-action scene. Come up with some unusual things. And remember Charlie
-is not tough. He&rsquo;s a smart guy afraid for his life with some
-kick ass legs. &gt;&gt;</p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<p>As I fell through
+the air, the Contours extended to their full length. The hooves
+splayed into three toes, maximizing their surface area. The Better
+Future lawn rushed toward me, and I closed my eyes, and then someone
+tried to impale my skull with my own spine. I opened my eyes and
+thought: <em>The Contours have snapped</em>, because they were about
+three feet long and had no hooves. But they had retracted on impact,
+to soak up the deceleration, and the hooves were there, too, just
+sunk into the earth. Already the Contours were extending, raising me
+back to running height. I pulled one hoof free, then the other, and
+shook off clods of soil.</p>
+<p>When I looked up, I
+saw the Manager. He didn&rsquo;t look any better up close.</p>
+<p>The lobby doors
+snicked open. I thought: <em>Maybe it won&rsquo;t be guards</em>, and
+was wrong.</p>
