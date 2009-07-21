@@ -17,9 +17,9 @@ now. He would be walking around on his artificial legs, and I would
 not be in this situation. What kind of CEO organized a project to
 manufacture artificial body parts but didn&rsquo;t try any himself?
 It was a dereliction of duty. I stared at that biological mess and
-was furious.</p>
+was furious. It was not my finest moment.</p>
 <p>Ahead, the lobby
-doors slid open. I thought: <em>Maybe it won&rsquo;t be guards</em>. I
-was wrong. Then I thought: <em>Maybe they don&rsquo;t know this was
-me</em>, and they drew their guns, and I thought: <em>They don&rsquo;t
+doors slid open. I thought: <em>Maybe it won&rsquo;t be guards</em>,
+and was wrong. Then I thought: <em>Maybe they don&rsquo;t know this
+was me</em>, and they drew their guns, and I thought: <em>They don&rsquo;t
 shoot unless you try to run</em>, and was wrong again.</p>
