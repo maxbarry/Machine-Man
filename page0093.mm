@@ -1,6 +1,5 @@
 <p>Page 93.</p>
 <p></p>
-<p></p>
 <p>( FRIDAY )</p>
 <p></p>
 <p></p>
