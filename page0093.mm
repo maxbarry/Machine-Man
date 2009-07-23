@@ -1,45 +1,35 @@
 <p>Page 93.</p>
-<p></p>
-<p>( FRIDAY )</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p>I once did one of
-those personality tests.</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; OK: The
-Manager says they&rsquo;re interested in making super soldiers. He
-says Lola&rsquo;s got an EMP in her chest. Explains how it works. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-I want to end here with Charlie busting the fuck out, don&rsquo;t I?
-I think so. I think Charlie says he&rsquo;s got to get back to Lola,
-and the Manager says Lola is taken care of. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-I think the Manager should make it very clear to Charlie that there&rsquo;s
-only one way out here. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-Charlie leaps out through the drapes. They protect him from shattered
-glass. Then he grabs Lola and they run off. I think he cleans out the
-Repo of parts, too. Maybe some guards shoot at him. It&rsquo;s a cool
-action scene. Come up with some unusual things. And remember Charlie
-is not tough. He&rsquo;s a smart guy afraid for his life with some
-kick ass legs. &gt;&gt;</p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<p>My legs slowed.
+They and I came to a halt not far from a small, elderly woman who was
+struggling up some steps with bags of groceries. She came to a halt,
+too, when she saw my hooves. Her eyes bulged. &ldquo;<em>Diablo.</em>&rdquo;</p>
+<p>I had to go back.
+Lola Banks was still in there. Probably in her suite, waiting for me
+to return with the scanner. Her fingers maybe touching her chest,
+then pulling away; trying not to wonder what it was the company had
+installed in her chest. Trying to concentrate on what she knew: that
+I was coming back.</p>
+<p>&ldquo;<em>Diablo!</em>&rdquo;
+shrieked the woman. &ldquo;<em>Diablo!</em>&rdquo;</p>
+<p>On the other hand,
+Better Future had guards. Guards with guns. Guns they weren&rsquo;t
+shy about using. What was I, an idiot? I couldn&rsquo;t run back in
+there. They would kill me.</p>
+<p>I imagined
+Cassandra Cautery knocking on Lola&rsquo;s door. Smiling as Lola
+opened it. <em>Charlie sent me to fetch you. He wants you to come down
+to the lab</em>. Because Cautery would have to assume it was over.
+That I would bring the government down on them. And that all evidence
+of wrongdoing had to be eradicated before then. I saw Cautery place a
+hand in the small of Lola&rsquo;s back, and steer her toward the
+elevators.</p>
+<p>&ldquo;<em>Diablo!</em>&rdquo;</p>
+<p>&ldquo;Quiet,&rdquo;
+I said, because that was making it really hard to think. Maybe there
+was a back way in. An entrance not protected by blast doors and
+security guards on high alert. I racked my brains. No. There was not.</p>
+<p>But Lola. But Lola.</p>
+<p>&ldquo;<em>Diabloooo!</em>&rdquo;</p>
+<p>&ldquo;Then why am
+I going back?&rdquo; I yelled. The Contours began to hammer the
+sidewalk, bearing me to Better Future.</p>
