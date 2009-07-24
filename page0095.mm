@@ -22,6 +22,10 @@ to never exceed my physical tolerances. But still, that was some leap
 of faith.</p>
 <p></p>
 <p></p>
+<p>What if Lola wasn&rsquo;t
+there? What if Cassandra Cautery had already come for her? She could
+be in the lab. That would screw me.</p>
+<p></p>
 <p></p>
 <p></p>
 <p>The issue with this
