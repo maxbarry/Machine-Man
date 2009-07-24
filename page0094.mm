@@ -1,71 +1,23 @@
 <p>Page 94.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>: they liked
-concrete. I had already been moving fast, but now they really started
-pumping. 
-</p>
-<p></p>
-<p></p>
-<p>Near the sidewalk
-they slipped, 
-</p>
-<p>and another bullet
-snapped by, so maybe this was fortunate. 
-</p>
-<p>They slipped once,
-near the sidewalk, although this might have been fortunate, because I
-was otherwise moving in a predictable straight line. A very fast
-predictable straight line, 
-</p>
-<p></p>
-<p></p>
-<p>Through eyes
-blurring with tears, I saw each leg stretch out in front of me, drive
-a hoof into the sidewalk, and throw me forward. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p>I once did one of
-those personality tests.</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; OK: The
-Manager says they&rsquo;re interested in making super soldiers. He
-says Lola&rsquo;s got an EMP in her chest. Explains how it works. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-I want to end here with Charlie busting the fuck out, don&rsquo;t I?
-I think so. I think Charlie says he&rsquo;s got to get back to Lola,
-and the Manager says Lola is taken care of. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-I think the Manager should make it very clear to Charlie that there&rsquo;s
-only one way out here. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-Charlie leaps out through the drapes. They protect him from shattered
-glass. Then he grabs Lola and they run off. I think he cleans out the
-Repo of parts, too. Maybe some guards shoot at him. It&rsquo;s a cool
-action scene. Come up with some unusual things. And remember Charlie
-is not tough. He&rsquo;s a smart guy afraid for his life with some
-kick ass legs. &gt;&gt;</p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<h5>CHAPTER 
+TWENTY</h5>
+<p>I consider myself a
+logical person. I don&rsquo;t play the lottery. I don&rsquo;t care
+what my horoscope says. I like movies, but get frustrated at how the
+love interest ignores explicit instructions and calls home just to
+let her mother know she&rsquo;s okay, and that&rsquo;s how the bad
+guys track them down. I think almost everything wrong in the world
+could be fixed if people thought a little more about what they&rsquo;re
+doing. I believe art is generally overrated, except for things like
+bridges. Bridges are really underappreciated. When someone gets upset
+with their computer because it won&rsquo;t do what they want, I
+secretly side with the computer.</p>
+<p>I mention this
+because some of what I did next was not very logical. And I know if I
+was hearing about this from somebody else, I would lose a little
+respect for that person. I would think: <em>Well that&rsquo;s just
+inadequate planning</em>. So I just want to say, in my defense, that
+that&rsquo;s a fair call, but if you were using fission-powered
+titanium legs to kick your way through a high-technology facility
+while highly trained security personnel tried to kill you, you might
+make a few odd decisions, too.</p>
