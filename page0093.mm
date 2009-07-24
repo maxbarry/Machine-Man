@@ -26,9 +26,11 @@ the elevators.</p>
 <p>&ldquo;<em>Diablo!</em>&rdquo;
 </p>
 <p>&ldquo;Quiet,&rdquo;
-I said, because that was making it really hard to think. Maybe there
-was a back entrance. A way in not protected by armed security guards
-on high alert. I racked my brains. No. There wasn&rsquo;t.</p>
+I said, because that was making it really hard to think. Between that
+and my wounded bicep, which was transitioning from comfortably numb
+to distractingly sore with hints of impending agony, I couldn&rsquo;t
+think. Maybe there was a back entrance. A door not protected by armed
+security guards on high alert. I closed my eyes. No. There wasn&rsquo;t.</p>
 <p>But Lola. But Lola.</p>
 <p>&ldquo;<em>Diablo!</em>&rdquo;
 the woman shrieked. She dropped her groceries to alternately point at
