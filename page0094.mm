@@ -21,7 +21,8 @@ sense.</p>
 because some of what I did next was not very logical. And I know if I
 heard about it from somebody else, I would lose a little respect for
 that person. I would think: <em>Well that&rsquo;s just inadequate
-planning</em>. So I want to say in my defense that I accept that, even
-agree with it, but if you were using fission-powered legs to kick
-your way through a high-technology facility while armed security
-personnel tried to kill you, you might screw up here and there, too.</p>
+planning</em>. So I want to say in my defense that I accept that
+argument, even agree with it, but if you were using nuclear-powered
+legs to kick your way through a high-technology facility while armed
+security personnel tried to kill you, you might screw up here and
+there, too.</p>
