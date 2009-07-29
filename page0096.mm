@@ -15,14 +15,14 @@ accomplish both. The Hummer hit the building at a thirty degree angle
 and disappeared halfway inside.</p>
 <p>From one
 perspective, I can&rsquo;t take much credit for this. It wasn&rsquo;t
-like I had anything much to do with that kick: my input was pretty
-much limited to cowering in the bucket seat and being very clear in
-my mind that I did not want to be run over. The Contours took care of
-the rest: the way one leg braced against the ground, the timing of
-the swing to catch the Hummer at the right point, the delivery of the
-perfect amount of force. But then, that was my code. I had written it
-weeks earlier, but the fact remained I had told them what to do in
-situations like this. So from this perspective, I was just as
-responsible for my legs as anyone else&mdash;more so&mdash;and I had
-just kicked over a car. I felt a tidal wave of pride, and confidence,
-and I looked up, chose a balcony, and jumped.</p>
+like I had anything much to do with that kick: my input was limited
+to cowering and being very sure that I did not want to be run over.
+The Contours took care of the rest: the bracing of one leg against
+the ground, the timing of the swing of the other, the delivery of the
+correct amount of force. But then, that was my code. I had written it
+weeks earlier, without this particular situation in mind, but the
+fact remained they were acting on my instructions. So from this
+perspective, I was as responsible for my legs as anyone. And I had
+just kicked a goddamn car into a building. I felt a tidal wave of
+pride, and new confidence. I looked up, located Lola&rsquo;s balcony,
+and jumped.</p>
