@@ -25,14 +25,13 @@ be able to hold you.&rdquo;</p>
 <p>&ldquo;Sure you
 can.&rdquo; She spread her hands. &ldquo;I&rsquo;m little.&rdquo;</p>
 <p>&ldquo;Lola, at
-12Gs, you&rsquo;ll weigh as much as a small car.&rdquo;</p>
-<p>&ldquo;Hey.&rdquo;</p>
-<p>&ldquo;That&rsquo;s
-not me. That&rsquo;s physics.&rdquo;</p>
+12Gs, you&rsquo;ll weigh as much as a small car.&rdquo; She looked a
+little insulted, so I added, &ldquo;That&rsquo;s not me. That&rsquo;s
+physics.&rdquo;</p>
 <p>&ldquo;Maybe we can
 sneak down an elevator.&rdquo;</p>
 <p>&ldquo;I just heard
-the elevator. Between us and it are people who want to kill us.&rdquo;</p>
+the elevator. Between it and us are people who want to kill us.&rdquo;</p>
 <p>&ldquo;Did you say
 kill?&rdquo;</p>
 <p>&ldquo;Yes! Look at
@@ -47,13 +46,13 @@ Lola said. &ldquo;You&rsquo;re injured.&rdquo;</p>
 <p>&ldquo;That&rsquo;s
 what I said.&rdquo;</p>
 <p>&ldquo;You said...&rdquo;
-She shook her head. &ldquo;They shot you?&rdquo;</p>
+She shook her head. &ldquo;They <em>shot</em> you?&rdquo;</p>
 <p>&ldquo;Yes.&rdquo;</p>
 <p>&ldquo;Why would
 they do that?&rdquo;</p>
 <p>I hesitated. &ldquo;I
-kind of killed the CEO. By accident,&rdquo; I added, because Lola&rsquo;s
-eyebrows were doing alarming things.</p>
+kind of killed the CEO.&rdquo; Lola&rsquo;s eyebrows leapt. &ldquo;By
+accident.&rdquo;</p>
 <p>&ldquo;Oh, no.&rdquo;</p>
 <p>&ldquo;There are
 extenuating circumstances. Trust me.&rdquo;</p>
@@ -82,8 +81,13 @@ felt that strange attractive force stir once more, trying to pull my
 fingers into her chest.</p>
 <p>&ldquo;Get us out
 of here, Charlie,&rdquo; Lola whispered.</p>
-<p>I decided: I would
-kick anyone who came through that door. I took a step forward, moving
-Lola behind me. The door banged open, and I tensed. But then I just
-stood there, my plan already forgotten, because the person in the
-doorway was Carl.</p>
+<p>I decided I would
+kick anyone who came through that door. It was not a great plan, and
+would probably end badly for some combination of me, Lola, and the
+guards outside, but it was all I had. I took a step forward, moving
+Lola behind me.</p>
+<p>The door banged
+open. I tensed. But then I just stood there, my plan already
+forgotten, because the person in the doorway was not who I expected.
+It was a security guard. I was right about that, at least. It was
+Carl.</p>
