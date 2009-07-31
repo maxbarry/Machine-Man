@@ -87,7 +87,6 @@ would probably end badly for some combination of me, Lola, and the
 guards outside, but it was all I had. I took a step forward, moving
 Lola behind me.</p>
 <p>The door banged
-open. I tensed. But then I just stood there, my plan already
-forgotten, because the person in the doorway was not who I expected.
-It was a security guard. I was right about that, at least. It was
-Carl.</p>
+open. And I just stood there, my plan already forgotten, because the
+person in the doorway was not who I expected. It was a security
+guard. I was right about that, at least. It was Carl.</p>
