@@ -1,5 +1,4 @@
 <p>Page 100.</p>
-<p>Test.</p>
 <p>Carl walked us to a
 supply elevator and swiped his ID card. I found this interesting,
 because a moment ago, Carl&rsquo;s hands had looked like blocks of
