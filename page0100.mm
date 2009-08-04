@@ -30,7 +30,7 @@ them to get rid of me? Is that what you mean?&rdquo;</p>
 <p>&ldquo;For making
 them take away my prosthetic arms, because you didn&rsquo;t want
 nobody to use your parts but you? That&rsquo;s what you&rsquo;re
-talking about? That time I spent in a bed with a button to push with
+talking about? The time I spent in a bed with a button to push with
 my foot when I needed someone to help me go to the bathroom?&rdquo;</p>
 <p>&ldquo;Carl&mdash;&rdquo;</p>
 <p>&ldquo;It&rsquo;s
