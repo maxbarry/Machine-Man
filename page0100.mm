@@ -1,12 +1,12 @@
 <p>Page 100.</p>
-<p>Carl walked us to a
-supply elevator and swiped his ID card. I found this interesting,
-because a moment ago, Carl&rsquo;s hands had looked like blocks of
-stone. Now they split into two thick fingers, supple enough to grasp
-the tag around his neck. It seemed they could separate into at least
-four digits, then come together to deliver a punching force. That
-wasn&rsquo;t a bad idea, for security guard hands. It&rsquo;s what I
-would have done, if I&rsquo;d designed them. Which I hadn&rsquo;t.</p>
+<p>Carl walked Lola
+and me to a supply elevator and swiped his ID card. I found this
+interesting, because a moment ago, Carl&rsquo;s hands had looked like
+blocks of stone. Now they split into two thick fingers, supple enough
+to grasp the tag around his neck. It seemed they could separate into
+at least four digits, then come together to deliver a punching force.
+That wasn&rsquo;t a bad idea, for security guard hands. It&rsquo;s
+what I would have done, if I&rsquo;d designed them. Which I hadn&rsquo;t.</p>
 <p>&ldquo;This opens
 in the parking lot,&rdquo; Carl said. &ldquo;Then you&rsquo;re on
 your own.&rdquo;</p>
