@@ -9,16 +9,16 @@ their effectiveness that they simply can&rsquo;t carry. War has
 become a load-bearing exercise. A logistics puzzle. And sure, tell me
 it&rsquo;s never been any different. Tell me that throughout history,
 battles have been won on the back of resource co-ordination. And I&rsquo;ll
-agree with you, Charlie, to a point. But let me say this. An army of
-soldiers who run at fifty miles per hour, leap twenty feet into the
-air, have an inbuilt arsenal capable of handling any contingency, and
-walk through enemy fire like it&rsquo;s rain&mdash;that army would
-get a lot of respect.&rdquo;</p>
+agree with you, Dr. Neumann, to a point. But let me say this. An army
+of soldiers who run at fifty miles per hour, leap twenty feet into
+the air, have an inbuilt arsenal capable of handling any contingency,
+and walk through enemy fire like it&rsquo;s rain&mdash;that army
+would get respect.&rdquo;</p>
 <p>&ldquo;Charlie has
 some interesting spine work in the pipeline,&rdquo; said Cassandra
 Cautery. &ldquo;I should get you an updated report.&rdquo;</p>
 <p>&ldquo;And I&rsquo;ll
-tell you what else excites me. The after-sales support. There&rsquo;s
+tell you what else excites me. The after-sales support. Now there&rsquo;s
 some vendor lock-in. We outfit a military with Better Future Combat
 Augmentations, they&rsquo;re going to need servicing. Training.
 Upgrades. They&rsquo;ll live and die on our bug fixes. I mean that
