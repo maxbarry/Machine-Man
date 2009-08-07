@@ -38,8 +38,5 @@ need to clean up that arm.&rdquo;</p>
 <p>&ldquo;Don&rsquo;t
 take my arms.&rdquo; This was when I realized it wasn&rsquo;t
 Cassandra Cautery. It was Angelica. She had deep brown eyes, which
-seemed to hold genuine concern. 
-</p>
-<p></p>
-<p></p>
-<p></p>
+seemed to care about me. I relaxed, and that was the last sensible
+thing I did for the night.</p>

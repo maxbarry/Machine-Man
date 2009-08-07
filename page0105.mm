@@ -8,7 +8,7 @@ criticize her dogs?&rdquo;</p>
 <p>&ldquo;I&rsquo;m
 not saying you would. Just don&rsquo;t.&rdquo;</p>
 <p>&ldquo;You clearly
-feel I would. Otherwise why mention it?&rdquo;</p>
+feel I would. Otherwise, why mention it?&rdquo;</p>
 <p>&ldquo;Forget it.&rdquo;</p>
 <p>&ldquo;Is there
 something wrong with her dogs?&rdquo;</p>
@@ -20,8 +20,8 @@ mention the dogs.&rdquo;</p>
 <p>&ldquo;<em>Do</em>
 mention them. But only say nice things.&rdquo;</p>
 <p>I pondered this. I
-wasn&rsquo;t sure how you complimented a dog. &ldquo;Fine. I&rsquo;ll
-say they are very attractive dogs.&rdquo;</p>
+wasn&rsquo;t sure how you complimented a dog. &ldquo;Fine. I&rsquo;m
+sure she has very attractive dogs.&rdquo;</p>
 <p>&ldquo;Don&rsquo;t
 say <em>that</em>. That sounds <em>creepy</em>.&rdquo;</p>
 <p>&ldquo;What should
