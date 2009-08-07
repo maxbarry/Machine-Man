@@ -4,8 +4,7 @@ stopped. It wasn&rsquo;t until Lola climbed down off me that I saw
 where: a leafy, suburban street. It looked odd, like something from a
 TV show. Then I realized where I knew it from, and laughed. I had
 lived here, as a boy. I felt touched: I had asked the Contours to
-bear me and Lola somewhere safe, and they had brought me back to my
-childhood.</p>
+bear me somewhere safe, and they had brought me back to my childhood.</p>
 <p>&ldquo;What?&rdquo;
 said Lola.</p>
 <p>&ldquo;I lived here
