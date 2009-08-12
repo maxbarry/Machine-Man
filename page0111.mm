@@ -1,4 +1,30 @@
 <p>Page 111.</p>
+<p>(WED)</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&lt;&lt; He&rsquo;s
+grouchy because they took off his legs. &gt;&gt;</p>
+<p></p>
+<p></p>
+<p>&lt;&lt; Charlie
+starts thinking about BF. &gt;&gt;</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&lt;&lt; Lola makes
+him coffee. &gt;&gt;</p>
+<p></p>
+<p>(TUES)</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
