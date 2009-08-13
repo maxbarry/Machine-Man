@@ -1,35 +1,37 @@
 <p>Page 110.</p>
+<p>(TUES)</p>
 <p>&ldquo;Toast?&rdquo;
 said Lola. &ldquo;There&rsquo;s peanut butter. I could make you
 peanut butter toast.&rdquo;</p>
 <p>I grunted. On TV, a
 nurse with amazing cleavage stared out a window. Behind her, a
-dashingly handsome doctor told her she would never get away with
-this. &ldquo;Coffee.&rdquo;</p>
+handsome doctor in a white coat told her she would never get away
+with this. &ldquo;Coffee.&rdquo;</p>
 <p>&ldquo;You&rsquo;ve
 had a lot of coffee already.&rdquo; Lola came over to where I was
 standing on the living room rug. &ldquo;Why don&rsquo;t you have some
 water?&rdquo;</p>
 <p>&ldquo;I don&rsquo;t
-want water.&rdquo; The TV doctor wrapped the nurse into a passionate
-embrace and kissed her. That was an unexpected development.</p>
+want water.&rdquo; The TV doctor wrapped the nurse up in a passionate
+embrace and mashed mouths. That was an unexpected development.</p>
 <p>She took my arm.
-&ldquo;Charlie, it&rsquo;s okay to be grouchy. I know you&rsquo;re
-coming down off the painkillers. But have some water.&rdquo;</p>
+&ldquo;Charlie, it&rsquo;s okay to be grouchy. You&rsquo;re coming
+off the painkillers. But have some water.&rdquo;</p>
 <p>&ldquo;Water won&rsquo;t
-help.&rdquo; I gestured at the bandage on my bicep. &ldquo;It really
-hurts.&rdquo;</p>
+help.&rdquo; I gestured at the bandage on my bicep. &ldquo;This
+really hurts.&rdquo;</p>
 <p>&ldquo;Angelica
 said it was just a scratch.&rdquo;</p>
 <p>&ldquo;I think it&rsquo;s
 infected.&rdquo;</p>
 <p>Lola fell silent.
-&ldquo;Let&rsquo;s see what Angelica says when she gets home.&rdquo;</p>
+&ldquo;Angelica can take a look when she gets home.&rdquo;</p>
 <p>Angelica had gone
 to work. Allegedly she would be bringing home as many painkillers as
 she could safely swipe from the hospital. In the meantime, I had to
 survive on over-the-counter medication. Angelica&rsquo;s tiny dogs
-roamed the house like rats. Each yap was like a knife in my brain.</p>
+roamed the house like rats. Rats in little coats. Each yap was like a
+knife in my brain.</p>
 <p>&ldquo;I&rsquo;ll
 make you that toast,&rdquo; said Lola. &ldquo;And I&rsquo;m bringing
 you some water.&rdquo;</p>

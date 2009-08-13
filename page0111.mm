@@ -1,58 +1,30 @@
 <p>Page 111.</p>
 <p>(WED)</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; He&rsquo;s
-grouchy because they took off his legs. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Charlie
-starts thinking about BF. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Lola makes
-him coffee. &gt;&gt;</p>
-<p></p>
-<p>(TUES)</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p>&ldquo;We need to
-go somewhere,&rdquo; I said. &ldquo;Somewhere safe.&rdquo;</p>
-<p>Lola nodded. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I once did one of
-those personality tests.</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; OK: The
-Manager says they&rsquo;re interested in making super soldiers. He
-says Lola&rsquo;s got an EMP in her chest. Explains how it works. &gt;&gt;</p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<p>Angelica arrived
+home around six. By then I was not doing so well. Every muscle in my
+body felt made of glass. My bowels were panicked and easily startled.
+I was sick of almost accidentally stepping on tiny scampering dogs
+every time I went to the bathroom and beginning to fantasize about
+doing it on purpose.</p>
+<p>The dogs heard
+Angelica&rsquo;s approach before I did and went into a frenzy,
+barking, running laps of the hallway, and pawing at the door. When
+Angelica appeared, she dropped to her knees and scooped up as many as
+she could hold, laughing as they squirmed and licked her face. I
+found the whole scene kind of disgraceful. I mean, I understand it
+must be nice to be greeted this way, but have some dignity. You don&rsquo;t
+need to roll over and expose your genitals. I&rsquo;m talking about
+the dogs. Devotion that slavish becomes meaningless, in my opinion.
+Call me a cat person, but there&rsquo;s no value in being worshipped
+by beings with no self-respect. I have a similar issue with religion.</p>
+<p>Angelica had with
+her a large blue bag, which she had set down on the floorboards to
+cuddle her dogs. This was one of those situations with social rules
+so obvious even I could see them: I should give Angelica a minute
+with her dogs before asking if that bag had painkillers in it and if
+so could I please have some. So I did it: I waited silently at the
+end of the hall, every biological part of my body screaming for
+relief. Finally Angelica looked up. &ldquo;You need some meds?&rdquo;</p>
+<p>I was a little
+surprised she read me so fast. But I guess I was sweating and
+grimacing. &ldquo;Yes, please.&rdquo;</p>
