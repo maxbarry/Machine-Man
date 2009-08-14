@@ -46,16 +46,16 @@ the tiles.
 </p>
 <p>&ldquo;Look at
 yourself,&rdquo; she said. &ldquo;This is self-improvement? You&rsquo;re
-addicted to narcotics. Last night you woke up screaming, because you
-can&rsquo;t sleep without your prosthetics. You&rsquo;re not getting
-better. You&rsquo;re getting worse.&rdquo;</p>
-<p>I sucked in a shaky
-breath, held it a moment. &ldquo;Well, Angelica, I don&rsquo;t think
-your opinion matters very much. Because it&rsquo;s my body.&rdquo;</p>
+addicted to narcotics. Last night you woke up screaming because you
+couldn&rsquo;t sleep without your prosthetics. You&rsquo;re not
+getting better. You&rsquo;re getting worse.&rdquo;</p>
+<p>I tried to speak
+calmly. &ldquo;Well, Angelica, I don&rsquo;t think your opinion
+matters very much. Because it&rsquo;s my body.&rdquo;</p>
 <p>&ldquo;This isn&rsquo;t
 about you. You think I care about you? I care about Lola.&rdquo;</p>
-<p>I softened. &ldquo;Lola&rsquo;s
-safe. I promise. I&rsquo;m not crazy, Angelica. I can look after her.
-I swear. What do you want me to say?&rdquo;</p>
+<p>This softened me.
+&ldquo;Lola&rsquo;s safe. I promise. I&rsquo;m not crazy, Angelica. I
+can look after her. I swear. What do you want me to say?&rdquo;</p>
 <p>Angelica said,
 &ldquo;Tell me she&rsquo;s perfect just the way she is.&rdquo;</p>
