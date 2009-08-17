@@ -9,8 +9,8 @@ began to filter in, bringing with it complications like the fact that
 I was being pursued by a vengeful security guard with multifunction
 sledgehammer arms, things didn&rsquo;t seem so bad. My problems
 weren&rsquo;t more significant than the miracle of Lola telling
-Angelica: <em>I love him</em>. With Lola, I felt, everything else was
-solvable. She was my independent variable. 
+Angelica last night: <em>I love him</em>. With Lola, everything else
+was solvable: I felt this strongly. She was my independent variable. 
 </p>
 <p>On the ceiling
 above my head was a poster of a dinosaur. I sat up. There were
