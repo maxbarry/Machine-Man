@@ -15,7 +15,7 @@ found the whole scene kind of disgraceful. I mean, I understand it
 must be nice to be greeted this way, but have some dignity. You don&rsquo;t
 need to roll over and expose your genitals. I&rsquo;m talking about
 the dogs. Devotion that slavish becomes meaningless, in my opinion.
-Call me a cat person, but there&rsquo;s no value in being worshipped
+Call me a cat person, but there&rsquo;s no value in being worshiped
 by beings with no self-respect. I have a similar issue with religion.</p>
 <p>Angelica had with
 her a large blue bag, which she had set down on the floorboards to
@@ -25,6 +25,5 @@ with her dogs before asking if that bag had painkillers in it and if
 so could I please have some. So I did it: I waited silently at the
 end of the hall, every biological part of my body screaming for
 relief. Finally Angelica looked up. &ldquo;You need some meds?&rdquo;</p>
-<p>I was a little
-surprised she read me so fast. But I guess I was sweating and
-grimacing. &ldquo;Yes, please.&rdquo;</p>
+<p>I guess the
+sweating and grimacing gave it away. I said, &ldquo;Yes, please.&rdquo;</p>

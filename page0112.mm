@@ -6,8 +6,8 @@ bandage on my arm. &ldquo;There&rsquo;s no reason for you to still be
 on such a high level. Who&rsquo;s your doctor at the company?&rdquo;</p>
 <p>&ldquo;I am.&rdquo;
 I felt terrific. Angelica hadn&rsquo;t even injected me yet. But I
-knew what was coming. I was at the top of a super slippery dip, ready
-for the ride.</p>
+knew what was coming. I was at the top of the slippery dip, ready for
+the ride.</p>
 <p>She frowned.
 &ldquo;That&rsquo;s not right. These are addictive.&rdquo;</p>
 <p>&ldquo;Addiction,&rdquo;
@@ -41,8 +41,7 @@ scientific terms. I&rsquo;ve heard you describe yourself as
 objective. I just don&rsquo;t believe it.&rdquo;</p>
 <p>I took a step
 toward her. Again, I couldn&rsquo;t stop myself. Angelica&rsquo;s
-eyes widened and she raised the needle, as if prepared to dash it on
-the tiles. 
+eyes widened. She raised the needle, as if to throw it to the tiles. 
 </p>
 <p>&ldquo;Look at
 yourself,&rdquo; she said. &ldquo;This is self-improvement? You&rsquo;re
@@ -54,8 +53,9 @@ calmly. &ldquo;Well, Angelica, I don&rsquo;t think your opinion
 matters very much. Because it&rsquo;s my body.&rdquo;</p>
 <p>&ldquo;This isn&rsquo;t
 about you. You think I care about you? I care about Lola.&rdquo;</p>
-<p>This softened me.
-&ldquo;Lola&rsquo;s safe. I promise. I&rsquo;m not crazy, Angelica. I
-can look after her. I swear. What do you want me to say?&rdquo;</p>
+<p>This took the wind
+out my sails. &ldquo;Lola&rsquo;s safe. I promise. I&rsquo;m not
+crazy, Angelica. I can look after her. I swear. What do you want me
+to say?&rdquo;</p>
 <p>Angelica said,
 &ldquo;Tell me she&rsquo;s perfect just the way she is.&rdquo;</p>
