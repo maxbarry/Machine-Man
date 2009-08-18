@@ -4,7 +4,7 @@ said Lola. &ldquo;There&rsquo;s peanut butter. I could make you
 peanut butter toast.&rdquo;</p>
 <p>I grunted. On TV, a
 nurse with amazing cleavage stared out a window. The handsome doctor
-in a white coat behind her, she said, would never get away with this.</p>
+behind her, she said, would never get away with this.</p>
 <p>&ldquo;What&rsquo;s
 that?&rdquo; said Lola. &ldquo;Yes or no?&rdquo;</p>
 <p>&ldquo;Coffee.&rdquo;</p>
