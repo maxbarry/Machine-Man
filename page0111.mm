@@ -12,9 +12,9 @@ she could hold, laughing as they squirmed and licked her face. I
 found the whole scene kind of disgraceful. I mean, I understand it
 would be nice to be greeted like this, but have some dignity. You
 don&rsquo;t need to roll over and expose your genitals. I&rsquo;m
-talking about the dogs. I feel that devotion that slavish can&rsquo;t
-be taken seriously. It&rsquo;s not objective. I have a similar issue
-with Christianity. Of course, I&rsquo;m a cat person.</p>
+talking about the dogs. Devotion that slavish can&rsquo;t be taken
+seriously, I feel. It&rsquo;s not objective. I have a similar issue
+with Christians.</p>
 <p>Angelica had set
 down a blue bag on the floorboards. This was one of those situations
 where the social rules were so obvious even I could see them: I
