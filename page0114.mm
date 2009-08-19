@@ -18,7 +18,7 @@ salad. &ldquo;Never heard of him.&rdquo;</p>
 Angelica said, &ldquo;Steve Mallorian got a call from Better Future.
 And apparently they persuaded him to go around asking if anyone had
 heard from you.&rdquo;</p>
-<p><em>Hello, legs</em>,
+<p><em>Legs?</em>
 I thought. <em>Can you hear me?</em></p>
 <p>&ldquo;What did you
 say?&rdquo;</p>
@@ -30,26 +30,20 @@ believe you?&rdquo;</p>
 <p>Angelica shrugged.
 &ldquo;I don&rsquo;t know.&rdquo;</p>
 <p><em>I think you can</em>,
-I told my legs. <em>I think you can hear me very well.</em></p>
+I told my legs. <em>I think you can hear me.</em></p>
 <p>&ldquo;The hospital
-wouldn&rsquo;t tell Better Future where you live,&rdquo; said Lola.</p>
-<p>&ldquo;No.&rdquo;</p>
-<p>&ldquo;Would they?&rdquo;</p>
-<p>&ldquo;They&rsquo;re
+wouldn&rsquo;t tell Better Future where you live,&rdquo; said Lola.
+&ldquo;Would they?&rdquo;</p>
+<p>&ldquo;No. They&rsquo;re
 not allowed to.&rdquo; Angelica bent down and scooped up a dog that
 had been steadily whining at her feet for the last few minutes. Its
 bright eyes fixed on me across the table cloth. I had the Contours
-lowered as far as they would go, but still sat a foot higher than
-everyone else.</p>
-<p><em>Give me a sign. A little hop. A
-twitch. </em>
-</p>
-<p>&ldquo;Maybe
-that won&rsquo;t matter.&rdquo; Lola raised her glass of wine and
-swished it nervously. &ldquo;These people, I&rsquo;m not sure they
-pay much attention to <em>allowed to</em>.&rdquo;</p>
-<p>....</p>
-<p></p>
+lowered as far down as they would go, but that still left me a foot
+higher than everyone else.</p>
+<p>&ldquo;Hmm.&rdquo;
+Lola swished the wine in her glass around. &ldquo;These people, I&rsquo;m
+not sure that will stop them.&rdquo;</p>
+<p><em>Give me a sign. A twitch. A flex.</em></p>
 <p></p>
 <p></p>
 <p></p>
@@ -65,6 +59,5 @@ dog bolted from Angelica&rsquo;s lap and scampered to the doorway,
 where it turned to stare back at me, quivering with accusation.</p>
 <p>&ldquo;Charlie?&rdquo;
 Lola reached for my hand. &ldquo;You okay?&rdquo;</p>
-<p>&ldquo;Sorry,&rdquo;
-I said. &ldquo;Everything&rsquo;s fine.&rdquo;</p>
-<p></p>
+<p>&ldquo;Yes,&rdquo;
+I said. &ldquo;Sorry. Everything&rsquo;s fine.&rdquo;</p>
