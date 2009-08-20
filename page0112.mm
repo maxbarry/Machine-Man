@@ -41,7 +41,7 @@ hadn&rsquo;t quite intended that. All I could think about was getting
 that syringe.</p>
 <p>&ldquo;You&rsquo;re
 self-destructing,&rdquo; said Angelica. &ldquo;Literally.&rdquo; She
-lowered her arm, as if let the syringe fall to the tiles.</p>
+lowered her arm, as if to let the syringe fall to the tiles.</p>
 <p>&ldquo;Wait! Wait!
 I appreciate your concern, Angelica. But this has nothing to do with
 you. It&rsquo;s my body. These are my decisions.&rdquo;</p>
