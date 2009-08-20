@@ -37,8 +37,8 @@ know you want to enhance her functionality?&rdquo;</p>
 want to enhance Lola!&rdquo;</p>
 <p>&ldquo;I don&rsquo;t
 believe you.&rdquo; Angelica raised the syringe again. This time I
-was sure she was going to smash it. My legs hiccupped forward of
-their own accord.</p>
+was sure she was going to smash it. My legs hiccuped forward of their
+own accord.</p>
 <p>I held out my
 hands. &ldquo;Please. Wait. There&rsquo;s no problem. I promise.
 Everything&rsquo;s going to be okay. Please. Please, believe me.&rdquo;</p>

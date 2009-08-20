@@ -6,8 +6,8 @@ on such a high level. Who&rsquo;s your doctor at the company?&rdquo;</p>
 <p>&ldquo;I am.&rdquo;
 I smiled at my reflection in the bathroom mirror. I felt terrific.
 Angelica hadn&rsquo;t injected me yet, but I was high on
-anticipation. My body and I were in the rollercoaster car, ratcheting
-up the slope.</p>
+anticipation. My body and I were in the roller coaster car,
+ratcheting up the slope.</p>
 <p>&ldquo;That&rsquo;s
 not right. These are addictive.&rdquo;</p>
 <p>&ldquo;Addiction,&rdquo;
