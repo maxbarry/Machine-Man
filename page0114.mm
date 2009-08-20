@@ -16,10 +16,13 @@ in Client Services.&rdquo;</p>
 salad. &ldquo;Never heard of him.&rdquo;</p>
 <p>&ldquo;Well,&rdquo;
 Angelica said, &ldquo;Steve Mallorian got a call from Better Future.
-And apparently they persuaded him to go around asking if anyone had
-heard from you.&rdquo;</p>
-<p><em>Legs?</em>
-I thought. <em>Can you hear me?</em></p>
+Who apparently persuaded him to go around asking if anyone had heard
+from you.&rdquo;</p>
+<p>I was not paying
+attention to this conversation. I sat at the table&mdash;<em>sat</em>
+in the sense that my Contours were retracted as far as they would
+go&mdash;talking to my parts. <em>Hello?</em> I said. <em>Can you hear
+me?</em></p>
 <p>&ldquo;What did you
 say?&rdquo;</p>
 <p>&ldquo;I said I
@@ -30,34 +33,36 @@ believe you?&rdquo;</p>
 <p>Angelica shrugged.
 &ldquo;I don&rsquo;t know.&rdquo;</p>
 <p><em>I think you can</em>,
-I told my legs. <em>I think you can hear me.</em></p>
+I said.</p>
 <p>&ldquo;The hospital
 wouldn&rsquo;t tell Better Future where you live,&rdquo; said Lola.
 &ldquo;Would they?&rdquo;</p>
-<p>&ldquo;No. They&rsquo;re
-not allowed to.&rdquo; Angelica bent down and scooped up a dog that
-had been steadily whining at her feet for the last few minutes. Its
-bright eyes fixed on me across the table cloth. I had the Contours
-lowered as far down as they would go, but that still left me a foot
-higher than everyone else.</p>
+<p>&ldquo;No. Pretty
+sure they&rsquo;re not allowed to.&rdquo; Angelica bent down and
+scooped up a dog that had been whining at her feet. Its bright eyes
+fixed on me across the table cloth.</p>
+<p><em>Don&rsquo;t be shy. Give me a sign.
+A twitch. A stretch.</em></p>
 <p>&ldquo;Hmm.&rdquo;
 Lola swished the wine in her glass around. &ldquo;These people, I&rsquo;m
-not sure that will stop them.&rdquo;</p>
-<p><em>Give me a sign. A twitch. A flex.</em></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;I know what
-you should do.&rdquo; Angelica pointed at me with her knife. &ldquo;You
-and him go to the police, tell them Better Future has built an
-unlicensed operating theater. They&rsquo;ll shut it down within the
-day.&rdquo;</p>
+not sure that will matter.&rdquo;</p>
+<p>&ldquo;I&rsquo;m
+going to say it again.&rdquo; Angelica pointed at Lola with her
+knife. &ldquo;You should go to the police.&rdquo;</p>
+<p>&ldquo;Hmm.&rdquo;</p>
+<p>&ldquo;You report
+that they&rsquo;ve built themselves an unlicensed operating theater,
+that place gets shut down within the week.&rdquo;</p>
+<p><em>Just let me know you&rsquo;re there.</em></p>
+<p>&ldquo;Half the
+hardware this guy is carrying around in his legs alone is illegal,&rdquo;
+said Angelica. &ldquo;I guarantee it.&rdquo;</p>
 <p>My right knee
-bounced up, hitting the underside of the table. The entire setting
-jumped half an inch into the air, then came clattering back down. The
-dog bolted from Angelica&rsquo;s lap and scampered to the doorway,
-where it turned to stare back at me, quivering with accusation.</p>
+bounced up and hit the underside of the table. The entire setting
+jumped an inch into the air. Before it clattered back down, the dog
+bolted from Angelica&rsquo;s lap. From the hallway it stared back at
+me, quivering with fury.</p>
 <p>&ldquo;Charlie?&rdquo;
-Lola reached for my hand. &ldquo;You okay?&rdquo;</p>
-<p>&ldquo;Yes,&rdquo;
-I said. &ldquo;Sorry. Everything&rsquo;s fine.&rdquo;</p>
+Lola reached for my hand. &ldquo;Are you all right?&rdquo;</p>
+<p>&ldquo;Sorry. Yes,&rdquo;
+I said. &ldquo;Everything&rsquo;s fine.&rdquo;</p>

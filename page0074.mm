@@ -27,7 +27,7 @@ help Carl, won&rsquo;t you?&rdquo;</p>
 <p>I stiffened.</p>
 <p>Lola slipped out of the hug. &ldquo;I&rsquo;m
 not saying <em>your</em> parts. I get
-that now. Like my heart, that wasn&rsquo;t just a thing. It was <em>me.</em>
+that now. Like my heart, that wasn&rsquo;t just a thing. It was <em>me</em>.
 I should have realized you would feel the same way.&rdquo; She bit
 her lip. &ldquo;But I thought, maybe, if you wanted, you could make
 some new parts. For Carl. Do you think you could do that?&rdquo;</p>

@@ -5,7 +5,7 @@ was Carl. He crawled into my mind and I couldn&rsquo;t get him out. I
 woke every half-hour, sticky with sweat, trying to escape Carl
 as he chased me armlessly through the corridors. Once he stood in the
 Clamp, looking at me as the plates closed in. His eyes said: <em>How
-could you do this, Charlie? You know I need some parts</em>.</p>
+could you do this, Charlie? You know I need some parts.</em></p>
 <p>I sat up, shivering. Carl was a bad
 guy, wasn&rsquo;t he? He had tried to kill Lola and steal my arms. Or
 if that wasn&rsquo;t quite true, he was a destroyer of relationships.

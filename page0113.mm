@@ -44,7 +44,7 @@ hands. &ldquo;Please. Wait. There&rsquo;s no problem. I promise.
 Everything&rsquo;s going to be okay. Please. Please, believe me.&rdquo;</p>
 <p>Angelica lowered
 the syringe. &ldquo;Now that was sincere. But you&rsquo;re on notice,
-Charles. I&rsquo;ll be watching you very closely.&rdquo;</p>
+Charles. I&rsquo;m watching you.&rdquo;</p>
 <p>At first I was
 confused. It took me a few moments to figure it out: Angelica thought
 I&rsquo;d been talking to her.</p>
