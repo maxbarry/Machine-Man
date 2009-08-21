@@ -7,15 +7,15 @@ and speared a potato.</p>
 <p>Lola froze, a
 forkful of lettuce halfway to her mouth. &ldquo;Who?&rdquo;</p>
 <p>&ldquo;Steve
-Mallorian.&rdquo;</p>
+Monovich.&rdquo;</p>
 <p>&ldquo;Who&rsquo;s
-Steve Mallorian?&rdquo;</p>
+Steve Monovich?&rdquo;</p>
 <p>&ldquo;I think he&rsquo;s
 in Client Services.&rdquo;</p>
 <p>Lola chewed her
 salad. &ldquo;Never heard of him.&rdquo;</p>
 <p>&ldquo;Well,&rdquo;
-Angelica said, &ldquo;Steve Mallorian got a call from Better Future.
+Angelica said, &ldquo;Steve Monovich got a call from Better Future.
 Who apparently persuaded him to go around asking if anyone had heard
 from you.&rdquo;</p>
 <p>I was not paying
