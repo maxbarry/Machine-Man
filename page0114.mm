@@ -44,20 +44,20 @@ know what we should do.&rdquo;</p>
 <p>&ldquo;I&rsquo;ve
 told you what you should do.&rdquo; Angelica bent down and scooped up
 a dog that had been whining at her feet. Its bright eyes fixed on me
-across the table cloth. &ldquo;Go to the feds. Report that Better
+across the table cloth. &ldquo;Go to the Feds. Report that Better
 Future has built itself an unlicensed operating theater, and they&rsquo;ll
-be a raid within 24 hours, I guarantee it.&rdquo;</p>
+be raided within 24 hours, I guarantee it.&rdquo;</p>
 <p><em>Give me a sign. A twitch. A stretch.</em></p>
 <p>&ldquo;I bet half
-the stuff they&rsquo;re doing in there is illegal,&rdquo; said
-Angelica. &ldquo;The Feds go in there, they&rsquo;ll seize everything
-they&rsquo;re not supposed to have.&rdquo; Her eyes flicked at me,
-then down, at my Contours.</p>
+the stuff they&rsquo;re doing in there is illegal.&rdquo; Angelica
+stroked the dog&rsquo;s ears. &ldquo;The Feds get wind of it, I bet
+they seize a whole bunch of stuff nobody has permits for.&rdquo; Her
+eyes flicked at me, at my Contours.</p>
 <p>My right knee
 bounced up and hit the underside of the table. The entire setting
 jumped an inch into the air. Before it clattered back down, the dog
 bolted from Angelica&rsquo;s lap. From the hallway it stared back at
-me, quivering with fury.</p>
+me, quivering.</p>
 <p>&ldquo;Charlie?&rdquo;
 Lola reached for my hand. &ldquo;You okay?&rdquo;</p>
 <p>&ldquo;Yes. Sorry,&rdquo;
