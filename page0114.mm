@@ -15,14 +15,14 @@ in Client Services.&rdquo;</p>
 <p>&ldquo;Never heard
 of him.&rdquo;</p>
 <p>&ldquo;Well,&rdquo;
-Angelica said, &ldquo;Steve Molonovich is going around asking if
-anyone&rsquo;s heard from you.&rdquo;</p>
+Angelica said, &ldquo;Steve Molonovich is going around the hospital
+asking if anyone&rsquo;s heard from you.&rdquo;</p>
 <p><em>Hello?</em> I
 said to my legs. <em>Can you hear me?</em></p>
 <p>Lola chewed her
 salad. &ldquo;Because of Better Future?&rdquo;</p>
 <p>&ldquo;Probably,&rdquo;
-said Angelica. &ldquo;He had this look on his face, like he gets when
+said Angelica. &ldquo;He had this look on his face like he gets when
 a corporate client really wants something. Like he&rsquo;s halfway
 through a bad hot dog.&rdquo;</p>
 <p>&ldquo;What did you
@@ -30,17 +30,17 @@ tell him?&rdquo;</p>
 <p>&ldquo;I said I
 hadn&rsquo;t heard from you.&rdquo;</p>
 <p>&ldquo;He believed
-that?&rdquo;</p>
+you?&rdquo;</p>
 <p>Angelica shrugged.
 &ldquo;I don&rsquo;t know.&rdquo;</p>
 <p><em>I think you can</em>,
 I told them.</p>
 <p>&ldquo;I don&rsquo;t
-like that,&rdquo; said Lola. She looked at me. I remembered I was
-supposed to be eating, and stabbed a carrot. This entailed bending
-down a little, because even with the Contours lowered as far as
-possible, I sat a good foot higher than everyone else at the table.
-&ldquo;I don&rsquo;t know what we should do.&rdquo;</p>
+like that.&rdquo; Lola glanced at me. I remembered I was supposed to
+be eating, and stabbed a carrot. This entailed bending down a little,
+because even with the Contours lowered as far as possible, I sat a
+good foot higher than everyone else at the table. &ldquo;I don&rsquo;t
+know what we should do.&rdquo;</p>
 <p>&ldquo;I&rsquo;ve
 told you what you should do.&rdquo; Angelica bent down and scooped up
 a dog that had been whining at her feet. Its bright eyes fixed on me
