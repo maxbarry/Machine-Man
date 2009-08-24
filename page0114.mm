@@ -7,62 +7,58 @@ and speared a potato.</p>
 <p>Lola froze, a
 forkful of lettuce halfway to her mouth. &ldquo;Who?&rdquo;</p>
 <p>&ldquo;Steve
-Monovich.&rdquo;</p>
+Molonovich.&rdquo;</p>
 <p>&ldquo;Who&rsquo;s
-Steve Monovich?&rdquo;</p>
-<p>&ldquo;I think he&rsquo;s
+Steve Molonovich?&rdquo;</p>
+<p>&ldquo;He&rsquo;s
 in Client Services.&rdquo;</p>
-<p>Lola chewed her
-salad. &ldquo;Never heard of him.&rdquo;</p>
+<p>&ldquo;Never heard
+of him.&rdquo;</p>
 <p>&ldquo;Well,&rdquo;
-Angelica said, &ldquo;Steve Monovich got a call from Better Future.
-Who apparently persuaded him to go around asking if anyone had heard
-from you.&rdquo;</p>
-<p>I was not paying
-attention to this conversation. I sat at the table&mdash;<em>sat</em>
-in the sense that my Contours were retracted as far as they would
-go&mdash;talking to my parts. <em>Hello?</em> I said. <em>Can you hear
-me?</em></p>
+Angelica said, &ldquo;Steve Molonovich is going around asking if
+anyone&rsquo;s heard from you.&rdquo;</p>
+<p><em>Hello?</em> I
+said to my legs. <em>Can you hear me?</em></p>
+<p>Lola chewed her
+salad. &ldquo;Because of Better Future?&rdquo;</p>
+<p>&ldquo;Probably,&rdquo;
+said Angelica. &ldquo;He had this look on his face, like he gets when
+a corporate client really wants something. Like he&rsquo;s halfway
+through a bad hot dog.&rdquo;</p>
 <p>&ldquo;What did you
-say?&rdquo;</p>
+tell him?&rdquo;</p>
 <p>&ldquo;I said I
-hadn&rsquo;t.&rdquo; 
-</p>
-<p>&ldquo;Did he
-believe you?&rdquo;</p>
+hadn&rsquo;t heard from you.&rdquo;</p>
+<p>&ldquo;He believed
+that?&rdquo;</p>
 <p>Angelica shrugged.
 &ldquo;I don&rsquo;t know.&rdquo;</p>
 <p><em>I think you can</em>,
-I said.</p>
-<p>&ldquo;The hospital
-wouldn&rsquo;t tell Better Future where you live,&rdquo; said Lola.
-&ldquo;Would they?&rdquo;</p>
-<p>&ldquo;No. Pretty
-sure they&rsquo;re not allowed to.&rdquo; Angelica bent down and
-scooped up a dog that had been whining at her feet. Its bright eyes
-fixed on me across the table cloth.</p>
-<p><em>Don&rsquo;t be shy. Give me a sign.
-A twitch. A stretch.</em></p>
-<p>&ldquo;Hmm.&rdquo;
-Lola swished the wine in her glass around. &ldquo;These people, I&rsquo;m
-not sure that will matter.&rdquo;</p>
-<p>&ldquo;I&rsquo;m
-going to say it again.&rdquo; Angelica pointed at Lola with her
-knife. &ldquo;You should go to the police.&rdquo;</p>
-<p>&ldquo;Hmm.&rdquo;</p>
-<p>&ldquo;You report
-that they&rsquo;ve built themselves an unlicensed operating theater,
-that place gets shut down within the week.&rdquo;</p>
-<p><em>Just let me know you&rsquo;re there.</em></p>
-<p>&ldquo;Half the
-hardware this guy is carrying around in his legs alone is illegal,&rdquo;
-said Angelica. &ldquo;I guarantee it.&rdquo;</p>
+I told them.</p>
+<p>&ldquo;I don&rsquo;t
+like that,&rdquo; said Lola. She looked at me. I remembered I was
+supposed to be eating, and stabbed a carrot. This entailed bending
+down a little, because even with the Contours lowered as far as
+possible, I sat a good foot higher than everyone else at the table.
+&ldquo;I don&rsquo;t know what we should do.&rdquo;</p>
+<p>&ldquo;I&rsquo;ve
+told you what you should do.&rdquo; Angelica bent down and scooped up
+a dog that had been whining at her feet. Its bright eyes fixed on me
+across the table cloth. &ldquo;Go to the feds. Report that Better
+Future has built itself an unlicensed operating theater, and they&rsquo;ll
+be a raid within 24 hours, I guarantee it.&rdquo;</p>
+<p><em>Give me a sign. A twitch. A stretch.</em></p>
+<p>&ldquo;I bet half
+the stuff they&rsquo;re doing in there is illegal,&rdquo; said
+Angelica. &ldquo;The Feds go in there, they&rsquo;ll seize everything
+they&rsquo;re not supposed to have.&rdquo; Her eyes flicked at me,
+then down, at my Contours.</p>
 <p>My right knee
 bounced up and hit the underside of the table. The entire setting
 jumped an inch into the air. Before it clattered back down, the dog
 bolted from Angelica&rsquo;s lap. From the hallway it stared back at
 me, quivering with fury.</p>
 <p>&ldquo;Charlie?&rdquo;
-Lola reached for my hand. &ldquo;Are you all right?&rdquo;</p>
-<p>&ldquo;Sorry. Yes,&rdquo;
-I said. &ldquo;Everything&rsquo;s fine.&rdquo;</p>
+Lola reached for my hand. &ldquo;You okay?&rdquo;</p>
+<p>&ldquo;Yes. Sorry,&rdquo;
+I said. &ldquo;I&rsquo;m fine.&rdquo;</p>
