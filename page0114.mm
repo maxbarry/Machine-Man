@@ -44,9 +44,9 @@ know what we should do.&rdquo;</p>
 <p>&ldquo;I&rsquo;ve
 told you what you should do.&rdquo; Angelica bent down and scooped up
 a dog that had been whining at her feet. Its bright eyes fixed on me
-across the table cloth. &ldquo;Go to the feds. Report that Better
+across the table cloth. &ldquo;Go to the Feds. Report that Better
 Future has built itself an unlicensed operating theater, and they&rsquo;ll
-be a raid within 24 hours, I guarantee it.&rdquo;</p>
+be raided within 24 hours, I guarantee it.&rdquo;</p>
 <p><em>Give me a sign. A twitch. A stretch.</em></p>
 <p>&ldquo;I bet half
 the stuff they&rsquo;re doing in there is illegal.&rdquo; Angelica
