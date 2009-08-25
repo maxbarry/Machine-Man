@@ -1,79 +1,51 @@
 <p>Page 115.</p>
-<p>(TUES)</p>
-<p></p>
-<p></p>
-<p>That night Lola
-slept in the kid&rsquo;s bedroom with me. The kid, apparently, was
-Angelica&rsquo;s son, who visited two weekends per month. When Lola
-told me this, her eyes shimmered with tragedy and outrage, and soon I
-was deep in a long, painful story full of people I didn&rsquo;t know
-doing things I was supposed to care about. I have trouble with these
-kinds of stories because they contain no useful information. I guess
-I&rsquo;m sorry that Rod was a cold, uncaring bastard who prioritized
-his own career over Angelica&rsquo;s, but I don&rsquo;t know Rod. I&rsquo;m
-never going to meet him. I don&rsquo;t understand what I&rsquo;m
-expected to do with this information.</p>
-<p>&ldquo;We could
-pull the mattress off that bed,&rdquo; said Lola. &ldquo;And put it
-next to my mat.&rdquo;</p>
-<p>&ldquo;You have a
-mat?&rdquo;</p>
-<p>&ldquo;It&rsquo;s a
-camping mat. I slept on it last night. But I can bring it in here so
-we can sleep next to each other.&rdquo;</p>
-<p>I smiled. Lola
-smiled. Then an odd thought popped into my head. The thought was that
-Lola and I should not be having this conversation in front of the
-Contours.</p>
-<p>&ldquo;It&rsquo;s
-been so crazy.&rdquo; Lola&rsquo;s voice dropped an octave. &ldquo;We
-still haven&rsquo;t had a chance to... get to know each other.&rdquo;</p>
-<p>&ldquo;Right.&rdquo;
-A crazy panic blossomed inside my brain: that Lola was making the
-Contours jealous. I had no grounds for this. I wasn&rsquo;t even
-prepared to grant that the Contours possessed any kind of
-consciousness, despite recent evidence. But I felt suddenly, insanely
-sure that they were getting mad.</p>
-<p>&ldquo;I figure the
-kid&rsquo;s mattress is perfect for you,&rdquo; said Lola. &ldquo;Your
-legs can just lie on the floor.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>We pulled the
-mattress off the kid&rsquo;s bed and lay it beside an unrolled
-camping mat. The mat was for Lola, because there was more of her that
-required cushioning. I could happily sleep standing up, given a wall
-to lean against...</p>
-<p></p>
-<p></p>
-<p>Lola snuggled
-against me. 
+<p>Lola stood beside
+me in Angelica&rsquo;s bathroom, brushing her teeth. I was thinking
+about my legs. About how they definitely, absolutely could not
+possess consciousness. Because that just wasn&rsquo;t possible. I
+would believe my legs could think for themselves only when I opened
+them up to find them powered by tiny elves. You didn&rsquo;t combine
+a bunch of inert materials and get personality. You just didn&rsquo;t.</p>
+<p>And yet. There was
+something going on here. Some glitch I hadn&rsquo;t anticipated.</p>
+<p>A subtle, invisible
+tugging brought me out of my thoughts. I looked at Lola in the mirror
+and she was looking at me. &ldquo;Mrph,&rdquo; I said, around the
+toothbrush.</p>
+<p>Lola leaned forward
+and spat. &ldquo;I was thinking. We could pull that mattress off
+Harrison&rsquo;s bed and lie it on the floor. Then I could sleep next
+to you.&rdquo;</p>
+<p>Harrison was
+Angelica&rsquo;s son. He visited two weekends per month. Lola had
+told me this earlier, her eyes shimmering with tragedy and outrage,
+before launching into a long, painful story full of people I didn&rsquo;t
+know doing things I was supposed to care about. I have trouble with
+these kinds of stories because they contain no useful information. I
+mean, I&rsquo;m sorry to hear that Rod was a cold, uncaring bastard
+who prioritized his own career over Angelica&rsquo;s, but I don&rsquo;t
+know Rod. I&rsquo;m never going to meet him. I don&rsquo;t understand
+what I&rsquo;m expected to do with this information.</p>
+<p>I smiled through
+toothpaste. &ldquo;Mmm.&rdquo; 
 </p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Maybe Lola
-starts playing with him, he feels uncomfortable bc of the Contours
-(watching him). &gt;&gt;</p>
-<p>&lt;&lt; Maybe Lola
-</p>
-<p></p>
 <p>&ldquo;It&rsquo;s
-actually quite difficult for me to lie down,&rdquo; I said.</p>
-<p>&ldquo;Because of
-the legs.&rdquo;</p>
-<p>&ldquo;Yes.&rdquo;</p>
-<p>Lola went silent.
-She was not saying: <em>You should take them off, then.</em></p>
-<p></p>
-<p></p>
-<p></p>
+been so crazy.&rdquo; Her voice dropped. &ldquo;We haven&rsquo;t had
+a chance to get to know each other.&rdquo;</p>
+<p>I leaned forward to
+spit into the sink. Then I frowned, because the Contours weren&rsquo;t
+helping. They were rigid, when I wanted them to tilt. I tried again:
+nothing.</p>
+<p>Lola&rsquo;s
+fingers addressed a wrinkle on my shirt. &ldquo;I think we&rsquo;ve
+earned a chance to relax, don&rsquo;t you?&rdquo;</p>
+<p>A thought whispered
+inside my brain: the Contours did not like Lola. They did not want
+her touching my chest. 
+</p>
+<p>&ldquo;And you,
+Charlie... you <em>really</em> need to relax.&rdquo;</p>
+<p>It was silly. It
+couldn&rsquo;t be true. But my thought was: Lola was making them mad.</p>
+<p>&ldquo;Come on.&rdquo;
+Lola&rsquo;s fingers entwined mine. &ldquo;Let&rsquo;s go to bed.&rdquo;</p>
