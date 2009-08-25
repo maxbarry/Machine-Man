@@ -25,7 +25,7 @@ these kinds of stories because they contain no useful information. I
 mean, I&rsquo;m sorry to hear that Rod was an uncaring bastard who
 prioritized his own career over Angelica&rsquo;s, but I don&rsquo;t
 know Rod. I&rsquo;m never going to meet him. I don&rsquo;t understand
-what I&rsquo;m expected to do with this information.</p>
+what I&rsquo;m expected to do about this.</p>
 <p>I smiled through
 toothpaste. &ldquo;Mmm.&rdquo; 
 </p>
