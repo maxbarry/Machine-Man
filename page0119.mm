@@ -5,16 +5,6 @@
 <p></p>
 <p></p>
 <p></p>
-<p>the signal-to-noise
-ratio is very low. That is, I would prefer that you simply stipulate
-that Rod was a cold, uncaring bastard, rather than leading me through
-a series of anecdotes intended to establish that point. I don&rsquo;t
-know Rod. I&rsquo;m in no position to judge. So you can go ahead and
-do that for me.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
 <p>&lt;&lt; soft
 sciences: Charlie asks Lola about id. &gt;&gt;</p>
 <p></p>

@@ -1,18 +1,22 @@
 <p>Page 117.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 <p>Lola&rsquo;s eyes
-grew huge. She reached like 
-</p>
+grew huge. She reached like</p>
 <p></p>
 <p>Her chest rose and
 fell. Her hands trembled and clutched at the curtains. 
 </p>
 <p></p>
 <p></p>
-<p></p>
-<p></p>
-<p></p>
 <p>&lt;&lt; Shall we
-have Lola go ballistic? Knock out the legs? I kinda think yes. &gt;&gt;</p>
+have Lola go ballistic? Knock out the legs? I kinda think yes.
+Charlie can restore them over a few weeks. Send Lola out for parts.
+Think about going back to BF. &gt;&gt;</p>
 <p></p>
 <p></p>
 <p>&ldquo;<em>What?</em>&rdquo;</p>
@@ -108,6 +112,3 @@ the legs.&rdquo;</p>
 <p>&ldquo;Yes.&rdquo;</p>
 <p>Lola went silent.
 She was not saying: <em>You should take them off, then.</em></p>
-<p></p>
-<p></p>
-<p></p>
