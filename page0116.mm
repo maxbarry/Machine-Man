@@ -25,7 +25,8 @@ backward. &ldquo;It&rsquo;s back!&rdquo;</p>
 <p>I remembered
 something: the first time this had happened, back at Better Future,
 Cassandra Cautery had said: <em>You had to go and excite Miss Banks.</em>
-&ldquo;It&rsquo;s your heart. It happens when your heart beats fast.&rdquo;</p>
+Now I had a second data point, there could be no doubt. &ldquo;It&rsquo;s
+your heart. It happens when your heart beats fast.&rdquo;</p>
 <p>&ldquo;What?&rdquo;
 Lola clutched at her chest. &ldquo;What?&rdquo;</p>
 <p>&ldquo;Whatever
