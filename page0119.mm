@@ -1,45 +1,47 @@
 <p>Page 119.</p>
 <h5>CHAPTER 
 TWENTY-FIVE</h5>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>(FRI)</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>They were dead.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I considered. This
-might not be completely true. It could be a bomb.</p>
-<p></p>
-<p></p>
-<p>Lola&rsquo;s eyes
-grew huge. She reached like</p>
-<p></p>
-<p>Her chest rose and
-fell. Her hands trembled and clutched at the curtains. 
+<p>There are five
+stages of grief. The first is Denial. For example: <em>My legs can not
+be dead</em>. I didn&rsquo;t spend long here. That acrid smell told me
+everything I needed to know. So I moved rapidly along to Anger.
+&ldquo;They&rsquo;re 
 </p>
+<p></p>
+<p>There was some
+shouting. Some raging. Once Lola had gone, some quiet, solitary
+weeping. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>This is the stage
+when you might, for example, shout that people should <em>get out,
+just leave me alone</em>. There is some weeping and raging and beating
+of fists.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p></p>
 <p>&lt;&lt; Shall we
@@ -48,96 +50,15 @@ Charlie can restore them over a few weeks. Send Lola out for parts.
 Think about going back to BF. &gt;&gt;</p>
 <p></p>
 <p></p>
-<p>&ldquo;<em>What?</em>&rdquo;</p>
 <p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Lola wants
-to get jiggy, Charlie making excuses. There&rsquo;s that magnetic
-force again, which is a good excuse. So Charlie maybe leaps on that,
-but Lola sees that he&rsquo;s happy about it. Then Charlie says, &ldquo;I&rsquo;m
-having an issue with the legs.&rdquo; &gt;&gt;</p>
-<p>Then Lola&rsquo;s
-solution is to take them off. Charlie can&rsquo;t.</p>
-<p></p>
-<p>&ldquo;So Take them
-off,&rdquo; says Lola.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;Right.&rdquo;
-A crazy panic blossomed inside my brain: that Lola was making the
-Contours jealous. I had no grounds for this. I wasn&rsquo;t even
-prepared to grant that the Contours possessed any kind of
-consciousness, despite recent evidence. But I felt suddenly, insanely
-sure that they were getting mad.</p>
-<p>&ldquo;I figure the
-kid&rsquo;s mattress is perfect for you,&rdquo; said Lola. &ldquo;Your
-legs can just lie on the floor.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I smiled. Lola
-smiled. Then an odd thought popped into my head. The thought was that
-Lola and I should not be having this conversation in front of the
-Contours.</p>
-<p></p>
-<p>I said, which
-That...&rdquo; And then I stopped, because a cold thought had stolen
-into my brain.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>We pulled the
-mattress off the kid&rsquo;s bed and lay it beside an unrolled
-camping mat. The mat was for Lola, because there was more of her that
-required cushioning. I could happily sleep standing up, given a wall
-to lean against...</p>
-<p></p>
-<p></p>
-<p>Lola snuggled
-against me. 
+<p>&lt;&lt; Charlie
+would want to sedate himself into unconsciousness. &gt;&gt;</p>
+<p>&lt;&lt; Maybe
+Charlie wants to be alone. Maybe he doesn&rsquo;t want them to take
+him out of his legs. Maybe he won&rsquo;t let them come into his
+room. He needs to grieve. What are the stages of grief? 
 </p>
 <p></p>
-<p>&ldquo;We could
-pull the mattress off that bed,&rdquo; said Lola. &ldquo;And put it
-next to my mat.&rdquo;</p>
-<p>&ldquo;You have a
-mat?&rdquo;</p>
-<p>&ldquo;It&rsquo;s a
-camping mat. I slept on it last night. But I can bring it in here so
-we can sleep next to each other.&rdquo;</p>
 <p></p>
 <p></p>
 <p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Maybe Lola
-starts playing with him, he feels uncomfortable bc of the Contours
-(watching him). &gt;&gt;</p>
-<p>&lt;&lt; Maybe Lola
-</p>
-<p></p>
-<p>&ldquo;It&rsquo;s
-actually quite difficult for me to lie down,&rdquo; I said.</p>
-<p>&ldquo;Because of
-the legs.&rdquo;</p>
-<p>&ldquo;Yes.&rdquo;</p>
-<p>Lola went silent.
-She was not saying: <em>You should take them off, then.</em></p>

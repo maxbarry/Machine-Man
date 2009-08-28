@@ -1,5 +1,5 @@
-<p>Page 117.</p>
-<p>(WED)</p>
+<p>Page 120.</p>
+<p>(TUE)</p>
 <p></p>
 <p>I came to see
 Angelica&rsquo;s dogs as a hive mind. They were many, but one. They
