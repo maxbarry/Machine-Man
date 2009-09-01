@@ -48,7 +48,8 @@ Charlie.&rdquo;</p>
 <p>I picked up a
 radial bolt. I wasn&rsquo;t even sure where this had come from. I had
 made notes, in the beginning. I should have kept that up.</p>
-<p>&ldquo;Charlie&mdash;&rdquo;</p>
+<p>&ldquo;My heart
+just wouldn&rsquo;t slow down. It&mdash;&rdquo;</p>
 <p>&ldquo;I notice
 people are very selective about their bodies,&rdquo; I told the bolt.
 &ldquo;Any time their body does something good, they claim it. They
