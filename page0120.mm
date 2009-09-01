@@ -10,18 +10,18 @@ a green blouse and an air of hopelessness. She looked at me and her
 eyes glimmered. I was sitting on the carpet, surrounded by my parts.
 Well, parts of my parts. I had disassembled my legs and hand and
 arranged them in concentric circles, radiating out. It looked as if I
-had suffered the world&rsquo;s neatest explosion. Which I had. The
-electromagnetic pulse that had come out of Lola had hurt no-one but
-me. It had done nothing but fry half the circuits in a hundred-foot
-radius. More specifically, it had fried all the sensitive ones.</p>
+had suffered the world&rsquo;s neatest explosion. Which I kind of
+had. What had come out of Lola was some kind of short-range
+electromagnetic pulse. It had killed no-one, disturbed nothing, and
+hurt no body but mine.</p>
 <p>&ldquo;I want...&rdquo;
 she said. &ldquo;I think...&rdquo;</p>
 <p>These disassembled
 components, that didn&rsquo;t mean I was fixing them. I had taken the
 Contours apart because I couldn&rsquo;t think of anything else. I was
 trying to break my problem into pieces until it was small enough to
-handle. That was how you solved anything: you divided it. I was
-clinging to the hope of eventually reaching something fixable.</p>
+handle. Because that was how you solved anything: you divided it. I
+was surviving on the hope of eventually reaching something fixable.</p>
 <p>Lola said, &ldquo;I
 think it&rsquo;s really unfair of you to say this is my fault.&rdquo;</p>
 <p>&ldquo;It&rsquo;s
@@ -29,11 +29,12 @@ not your fault.&rdquo; I did not look at her as I said this, because
 I did not really believe it.</p>
 <p>&ldquo;They put it
 in me.&rdquo; She took one step closer, on the narrow, component-free
-path between the door and me. Her foot came down beside a three-foot
+path between the door and me. Her foot landed beside a three-foot
 long section of titanium that had once controlled my plane
-stabilization. This was part of my problem: there were big sections
-that were machine-welded. I couldn&rsquo;t open them up. &ldquo;They
-put that thing in my chest and didn&rsquo;t even <em>tell</em> me.&rdquo;</p>
+stabilization. This was part of my problem: there were many sections
+that were machine-welded. I couldn&rsquo;t open them up, not with
+domestic tools. &ldquo;They put that thing in my chest and didn&rsquo;t
+even <em>tell</em> me.&rdquo;</p>
 <p>I almost didn&rsquo;t
 say it. Then I did. &ldquo;You could have calmed down.&rdquo;</p>
 <p>&ldquo;I could have
@@ -51,7 +52,7 @@ made notes, in the beginning. I should have kept that up.</p>
 <p>&ldquo;I notice
 people are very selective about their bodies,&rdquo; I told the bolt.
 &ldquo;Any time their body does something good, they claim it. They
-look good, they play football, they run a marathon, it&rsquo;s <em>I</em>
+look good, they play football, they run a marathon, they say, <em>I</em>
 did this. But something goes wrong, it&rsquo;s not <em>I</em> any more.
 It&rsquo;s a problem with their foot. Their brain needs more sleep.
 They don&rsquo;t like their skin. Suddenly it&rsquo;s not <em>them</em>.
