@@ -13,7 +13,7 @@ arranged them in concentric circles, radiating out. It looked as if I
 had suffered the world&rsquo;s neatest explosion. Which I had. The
 electromagnetic pulse that had come out of Lola had hurt no-one but
 me. It had done nothing but fry half the circuits in a hundred-foot
-radius.</p>
+radius. More specifically, it had fried all the sensitive ones.</p>
 <p>&ldquo;I want...&rdquo;
 she said. &ldquo;I think...&rdquo;</p>
 <p>These disassembled
@@ -54,8 +54,8 @@ people are very selective about their bodies,&rdquo; I told the bolt.
 look good, they play football, they run a marathon, it&rsquo;s <em>I</em>
 did this. But something goes wrong, it&rsquo;s not <em>I</em> any more.
 It&rsquo;s a problem with their foot. Their brain needs more sleep.
-Suddenly it&rsquo;s not <em>them</em>. It&rsquo;s the body they&rsquo;re
-stuck in.&rdquo;</p>
+They don&rsquo;t like their skin. Suddenly it&rsquo;s not <em>them</em>.
+It&rsquo;s just the body they&rsquo;re stuck in.&rdquo;</p>
 <p>&ldquo;What are you
 saying?&rdquo;</p>
 <p>&ldquo;Nothing.&rdquo;
