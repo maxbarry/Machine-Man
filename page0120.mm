@@ -33,7 +33,7 @@ path between the door and me. Her foot came down beside a three-foot
 long section of titanium that had once controlled my plane
 stabilization. This was part of my problem: there were big sections
 that were machine-welded. I couldn&rsquo;t open them up. &ldquo;They
-put that thing in my chest without even <em>telling</em> me.&rdquo;</p>
+put that thing in my chest and didn&rsquo;t even <em>tell</em> me.&rdquo;</p>
 <p>I almost didn&rsquo;t
 say it. Then I did. &ldquo;You could have calmed down.&rdquo;</p>
 <p>&ldquo;I could have
@@ -54,7 +54,7 @@ people are very selective about their bodies,&rdquo; I told the bolt.
 look good, they play football, they run a marathon, it&rsquo;s <em>I</em>
 did this. But something goes wrong, it&rsquo;s not <em>I</em> any more.
 It&rsquo;s a problem with their foot. Their brain needs more sleep.
-Suddenly it&rsquo;s not <em>them</em>. It&rsquo;s just the body they&rsquo;re
+Suddenly it&rsquo;s not <em>them</em>. It&rsquo;s the body they&rsquo;re
 stuck in.&rdquo;</p>
 <p>&ldquo;What are you
 saying?&rdquo;</p>

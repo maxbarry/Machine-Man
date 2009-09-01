@@ -1,4 +1,93 @@
 <p>Page 121.</p>
+<p>Apparently
+depression is good for problem-solving. It&rsquo;s the evolutionary
+reason for it: to get you focussing obsessively on your problems
+until you figure out a solution. You become more analytical,
+critical. You don&rsquo;t eat. Your brain ticks over and over,
+reworking your problem from all angles.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>ed, analytical, and
+critical. 
+</p>
+<p></p>
+<p>That&rsquo;s
+essentially what depression is: obsessive focus on your problems. 
+</p>
+<p></p>
+<p></p>
+<p>analytical thinking</p>
+<p></p>
+<p> reallocation of
+resources to the parts of brain that are good at figuring things out.
+You obsess on your problems 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>On the eighth day,
+Lola brought me an arc welder. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>Maybe one more
+descent into madness.</p>
+<p></p>
+<p>... this is good
+for charlie going nuts...</p>
+<p></p>
+<p></p>
+<p></p>
+<p>I came to see
+Angelica&rsquo;s dogs as a hive mind. They were many, but one. They
+communicated via telepathy. If I yelled at one in the bathroom, I
+would emerge to find three more, trembling on the carpet with shared
+outrage. Taken as individuals, they were some of the stupidest
+mammals I had ever encountered. When I walked toward one, more often
+than not it would freeze, wanting to flee but unable to figure out if
+I would maintain my current trajectory or maybe start teleporting
+around the room. As a collective, though, the dogs were plotting
+something. I was sure of it. They wanted me out of the house and were
+beginning to figure out methods. Any time I entered a room to
+multiple sets of glittering eyes, I got nervous.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>On the eighth day,
+Lola brought me an arc welder. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
@@ -26,39 +115,11 @@ arc welder,&rdquo; I said. &ldquo;A big one.&rdquo;</p>
 <p>Lola was silent. 
 </p>
 <p></p>
-<p>She just stood.</p>
-<p></p>
-<p>She looked as if
-she wanted to come in, maybe sit on the bed, but there wasn&rsquo;t
-much carpet that didn&rsquo;t have a component of my legs on it. I
-sat in the middle of the floor, and there was a path to the door, but
-apart from that the pieces were arranged in concentric circles,
-radiating out from me, as if experiencing the world&rsquo;s neatest
-explosion.</p>
-<p>Lola wriggled the
-door handle, back and forth. &ldquo;I just want to know how I can
-help.&rdquo;</p>
-<p>I looked at my
-parts.</p>
-<p>&ldquo;Have a
-bath,&rdquo; Lola said. &ldquo;Please.&rdquo;</p>
-<p>There were big
-sections I couldn&rsquo;t dissassemble. That was the real problem.
-They were machine-welded. But still. Breaking the problem into
-smaller parts made it feel more manageable. 
-</p>
 <p>&ldquo;Please,
 Charlie,&rdquo; said Lola. &ldquo;Tell me what to do.&rdquo;</p>
-<p>&ldquo;Ack.&rdquo;
-I swallowed and tried again. It had been a few days since I&rsquo;d
-used my voice. &ldquo;Bring me a torque wrench. And a soldering iron.
-And transistors. Lots of transistors.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;I need some
-equipment.&rdquo;</p>
+<p>&ldquo;Bring me a
+torque wrench. And a soldering iron. And transistors. Lots of
+transistors.&rdquo;</p>
 <p></p>
 <p></p>
 <p></p>
@@ -67,38 +128,8 @@ Charlie doesn&rsquo;t really believe he can fix this. He&rsquo;s
 despondent. &gt;&gt;</p>
 <p></p>
 <p></p>
-<p></p>
-<p></p>
-<p></p>
 <p>&ldquo;I just want
 to know how I can help you.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
 <p></p>
 <p></p>
 <p>&lt;&lt; Some time
