@@ -5,8 +5,8 @@ along on a skateboard I had found under the bed, pushing myself with
 my one functional hand&mdash;I would first encounter just one dog. It
 would be sitting on the floorboards, scratching an ear, chewing its
 jacket, or something equally pointless. It would get to its feet and
-stare at me, its tiny brain visibly struggling to figure out this
-wheeled man. Then it would panic and scamper away.</p>
+stare at me, its tiny brain struggling to figure out this wheeled
+man. Then it would panic and scamper away.</p>
 <p>But when I emerged
 from the bathroom, sweating from wrestling the toilet into
 submission, I would find three of them waiting at the top of the
