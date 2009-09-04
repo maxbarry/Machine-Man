@@ -53,3 +53,12 @@ know? Lola could have baked pies. I could have repaired things. The
 townspeople could have called me <em>Doc</em>.</p>
 <p>Yeah. Or maybe not.</p>
 <p></p>
+<p>Mon: This but no
+prosthetics.</p>
+<p>Tue: Prosthetics.
+Charlie grinning and bearing it. Kinda ominous because you know it
+can&rsquo;t well, even though Charlie&rsquo;s trying.</p>
+<p>Wed: Sleeping. But
+I had forgotten Dog.</p>
+<p>Thu: Steps on Dog</p>
+<p>Fri: Ang calls CC.</p>
