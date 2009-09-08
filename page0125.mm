@@ -14,8 +14,7 @@ basic, but&mdash;&rdquo;</p>
 <p>&ldquo;They&rsquo;re
 perfect,&rdquo; I said. &ldquo;Thanks.&rdquo;</p>
 <p>Lola beamed. &ldquo;I&rsquo;m
-proud of you, Charlie.&rdquo; She squeezed my naked shoulder. &ldquo;Want
-to try them on?&rdquo;</p>
+proud of you, Charlie. Want to try them on?&rdquo;</p>
 <p>The straps were
 ragged and worn, dark in patches. A lot of amputated thighs had sweat
 into these prosthetics before mine. The sockets were loose in some
@@ -30,13 +29,11 @@ needles. Within four steps, I was sure the sockets were filling with
 blood. Sweat popped out around my hairline and ran down my nose.</p>
 <p>We made it to the
 door. Lola helped lower me to the toilet seat. &ldquo;That was great,
-Charlie. That was a really good first effort.&rdquo;</p>
-<p>I managed: &ldquo;Ha.&rdquo;</p>
-<p>She reached for a
-buckle. &ldquo;That&rsquo;s enough for now. At first, you take it
-slow. It was a really good&mdash;&rdquo;</p>
-<p>&ldquo;Let&rsquo;s
+Charlie. That was a really good first effort.&rdquo; She reached for
+a buckle. &ldquo;That&rsquo;s enough for now, though. At first, you
+take it slow. It was a really good&mdash;&rdquo;</p>
+<p>I panted, &ldquo;Let&rsquo;s
 go again.&rdquo;</p>
 <p>Her eyebrows
-jumped. &ldquo;That&rsquo;s the spirit, Charlie!&rdquo; She was
-delighted. &ldquo;That&rsquo;s the spirit!&rdquo;</p>
+jumped. &ldquo;That&rsquo;s the spirit, Charlie!&rdquo; She clapped
+her hands, delighted. &ldquo;That&rsquo;s the spirit!&rdquo;</p>
