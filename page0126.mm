@@ -2,7 +2,7 @@
 <p>The night was
 tough. I won&rsquo;t recount the whole sweating, groaning ordeal.
 I&rsquo;ll just say it was one of the most horrible experiences of my
-life. I speak as someone who had both his legs crushed in an
+life. I speak as someone who has had both legs crushed in an
 industrial clamp. These new prosthetics, the war veteran legs,
 weren&rsquo;t realistic enough to fool my brain. They were poles.
 When I waved them around, when I massaged them with shaking fingers,

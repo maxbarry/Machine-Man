@@ -3,7 +3,7 @@
 better. When Lola wrapped herself in a towel and went off to shower,
 I even got up the courage to try the war veteran legs by myself. The
 plan was to impress Lola. I got myself strapped in and staggered out
-into the corridor, taking huge, exagerated steps, grabbing at the
+into the corridor, taking huge, exaggerated steps, grabbing at the
 wall for balance. There were no dogs around. I should have noticed
 that.</p>
 <p>&ldquo;He has.&rdquo;
