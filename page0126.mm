@@ -9,7 +9,7 @@ When I waved them around, when I massaged them with shaking fingers,
 my brain did not buy it. It had bought the Contours. It had bought
 the Contours even when they were in pieces.</p>
 <p>Around four, with
-Lola was rubbing my back and telling me I could get through this, I
+Lola rubbing my back and telling me I could get through this, I
 realized the pain was different. At Better Future, before I&rsquo;d
 figured out to wear the Contours at night, the phantom pain had felt
 distinctly like muscle cramp. Like toes I didn&rsquo;t have, curling
