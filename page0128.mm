@@ -28,17 +28,17 @@ a doorway somewhere. &ldquo;Those little dogs set me up.&rdquo;</p>
 <p>Then Angelica was
 hitting me, for some reason. I tried to fend her off and was not very
 successful. Her nails raked my face. Biggles bit me on the finger. On
-all sides was yapping and shrieking and I couldn&rsquo;t tell who was
-doing what. &ldquo;<em>Get out!</em>&rdquo; Angelica screamed. I curled
-into a ball beneath the assault. &ldquo;<em>Get out get out get out!</em>&rdquo;</p>
+all sides was yapping and shrieking and dogs seemed to be coming out
+of the damn walls to pile on top of me. &ldquo;<em>Get out!</em>&rdquo;
+Angelica screamed. I curled into a ball beneath the assault. &ldquo;<em>Get
+out get out get out!</em>&rdquo;</p>
 <p>Eventually, Lola
 convinced Angelica to stop hitting me. She did this by screaming at
 Angelica while Angelica screamed at her and every dog in the house
 barked and yowled. I once attended a demonstration of Better Future
 sonics-based non-lethal weaponry, and what came out of that gun did
-not sound as bad as this. It ended with Angelica scooping up as many
-dogs as she could carry and running to the master bedroom. I
-uncurled. My ears hurt.</p>
+not sound as bad as this. It ended with Angelica running to the
+master bedroom, trailed by little dogs. They looked satisfied.</p>
 <p>Lola helped me into
 a kitchen chair. &ldquo;That was an accident,&rdquo; I said.</p>
 <p>&ldquo;I know.&rdquo;</p>
@@ -48,17 +48,22 @@ deliberately step on a dog.&rdquo;</p>
 Charlie.&rdquo; She inspected my maimed finger. 
 </p>
 <p>&ldquo;Ow,&rdquo; I
-said. &ldquo;He can&rsquo;t be too hurt, if he can bite like that.&rdquo;</p>
+said. &ldquo;Biggles can&rsquo;t be too damn hurt, if he can bite
+like that.&rdquo;</p>
 <p>&ldquo;Shh,&rdquo;
 said Lola.</p>
 <p>I shushed. In the
 silence, I could hear Angelica muttering to her dogs. &ldquo;We have
 to go now, don&rsquo;t we?&rdquo;</p>
-<p>&ldquo;I think we
-do.&rdquo;</p>
-<p>Angelica&rsquo;s
-voice rose. It was oddly strident. I had never heard her talk to her
-dogs like that before. &ldquo;Is Angelica on the phone?&rdquo;</p>
+<p>&ldquo;I think so,
+Charlie.&rdquo;</p>
+<p>In the bedroom,
+Angelica&rsquo;s voice rose. It was oddly strident. I had never heard
+her talk to the dogs like that.</p>
+<p>&ldquo;She doesn&rsquo;t
+see you like I do,&rdquo; said Lola. &ldquo;Nobody does.&rdquo;</p>
+<p>&ldquo;Is Angelica
+on the phone?&rdquo;</p>
 <p>We listened. I
 could almost hear it already: the white van, the Better Future logo
-on the side, the guards in back, speeding toward us.</p>
+on the side, speeding toward us.</p>
