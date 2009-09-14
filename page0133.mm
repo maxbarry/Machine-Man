@@ -109,5 +109,59 @@ unpleasure. </em>
 </p>
 <p></p>
 <p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p> Lola took a shaky
+breath. &ldquo;When you said <em>be a machine</em>, I thought&mdash;&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
+<p>&ldquo;This is a
+ridiculous weapon,&rdquo; I said. &ldquo;I hope that&rsquo;s
+experimental.&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&ldquo;Do you trust
+me?&rdquo;</p>
+<p>&ldquo;You know I
+do, Charlie.&rdquo; Low voice.</p>
+<p>You know how you
+have an EMP weapon in your chest?&rdquo;</p>
+<p>&ldquo;Yeah, I
+think I remember.&rdquo;</p>
+<p>&ldquo;And it&rsquo;s
+triggered by high heart rate.&rdquo; Bright light spilled under the
+rising garage door. I raised a hand to shield my eyes. Then I
+couldn&rsquo;t help it: I glanced at the arc welder again. It was
+shining.</p>
+<p>&ldquo;Charlie!
+What are&mdash;&rdquo;</p>
+<p>&ldquo;Right. Well,
+for this to work, sometimes I&rsquo;m going to have to not tell you
+things.&rdquo;</p>
+<p>&ldquo;What
+things?&rdquo;</p>
+<p>&ldquo;Things that
+might alarm you.&rdquo; The garage door retracted into the ceiling.
+Beyond lay a concrete driveway, garden beds, an empty road, freedom.
+&ldquo;Do you trust me?&rdquo;</p>
+<p>&ldquo;Was Angelica
+on the phone?&rdquo;</p>
+<p>&ldquo;Lola.&rdquo;</p>
+<p>&ldquo;Yes,
+Charlie. I trust you.&rdquo;</p>
+<p>&ldquo;Then I need
+you to be a machine,&rdquo; I said. &ldquo;No thinking. Just doing.&rdquo;</p>
+<p></p>
+<p></p>
+<p>&ldquo;Then start
+the car.&rdquo;</p>
+<p></p>
 </BODY>
 </HTML>

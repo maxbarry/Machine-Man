@@ -44,5 +44,4 @@ arm. &ldquo;Charlie?&rdquo;</p>
 said. &ldquo;No, no, no.&rdquo;</p>
 <p>&ldquo;What is it?&rdquo;</p>
 <p>I opened my mouth
-and closed it again. I couldn&rsquo;t bring myself to say it: <em>You
-killed my legs</em>.</p>
+and closed it again. I couldn&rsquo;t say it: <em>You killed my legs</em>.</p>
