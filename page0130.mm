@@ -12,43 +12,51 @@ even know where we&rsquo;re going.&rdquo;</p>
 <p>&ldquo;Anywhere.&rdquo;
 I pulled shut the car door. Then, out the window, I saw it: the arc
 welder. My breath caught. It was so big. It was a gray refrigerator
-on wheels. That thing had to be rated 200 amps. Maybe it <em>could</em>
-open up the Contours.</p>
+on wheels. That thing had to be rated 200 amps. Maybe I <em>could</em>
+use it.</p>
 <p>&ldquo;I should at
-least leave a note.&rdquo;</p>
-<p>&ldquo;What?&rdquo;
-I realized Lola was reaching for the door handle. &ldquo;No! We&rsquo;ll
-call her from the road.&rdquo;</p>
-<p>&ldquo;Call her
-with what? Charlie, you&rsquo;re not making sense!&rdquo;</p>
-<p>&ldquo;All right.
-All right.&rdquo; I found a remote control between the seats, and
-pressed. The garage door began to rattle upward. &ldquo;Lola. I want
-you to be a machine.&rdquo;</p>
-<p>Lola folded her
-hands in her lap. Her shoulders seem to settle, as if absorbing load.
-&ldquo;I see.&rdquo;</p>
-<p>&ldquo;Not like
-that. Just listen. There&rsquo;s a device in your chest. Some kind of
-EMP weapon that activates when your heart beats fast.&rdquo; As the
-garage door rose, light spilled inside. I couldn&rsquo;t help it: I
-glanced at the arc welder again. It was shining. &ldquo;In order for
-us to remain functional in a high-pressure situation, we can&rsquo;t
-let you get too stressed. So, right now, it&rsquo;s important that
-you don&rsquo;t think too much. We need you to do what I say without
-wondering why.&rdquo;</p>
+least leave a note...&rdquo;</p>
+<p>I realized Lola was
+reaching for the door handle. &ldquo;No! Stop that!&rdquo;</p>
+<p>&ldquo;Charlie!&rdquo;
+Her cheeks flamed. &ldquo;What the hell? You&rsquo;re not making
+any&mdash;&rdquo;</p>
+<p>&ldquo;Shut up.&rdquo;</p>
+<p>&ldquo;<em>What?</em>&rdquo;</p>
+<p>&ldquo;Shh.&rdquo;</p>
+<p>&ldquo;<em>What?</em>&rdquo;</p>
+<p>&ldquo;Stop
+talking.&rdquo;</p>
+<p>&ldquo;You
+stop talking! Asshole!&rdquo;</p>
+<p>&ldquo;Lola, turn
+off your brain and do exactly what I say.&rdquo; I hunted between the
+seats until I found a remote control, and pressed. The garage door
+began to rattle upward. &ldquo;It&rsquo;s the only way.&rdquo;</p>
+<p>&ldquo;The only way
+to <em>what?</em>&rdquo;</p>
+<p>&ldquo;You see how
+you&rsquo;re still thinking? Stop it.&rdquo;</p>
+<p>&ldquo;Stop
+treating me like a piece of&mdash;&rdquo;</p>
 <p>&ldquo;Like a
-machine.&rdquo;</p>
-<p>&ldquo;Yes.&rdquo;</p>
-<p>She chewed her lip.
-&ldquo;You think this is a high-pressure situation?&rdquo;</p>
+machine. Be that. An object that blindly obeys instruction.&rdquo;</p>
+<p>&ldquo;As a woman,
+that is <em>really</em> objectionable.&rdquo;</p>
+<p>&ldquo;You&rsquo;re
+not a woman right now. You&rsquo;re an EMP weapon that activates at
+high heart rates.&rdquo;</p>
 <p>The garage door
-retracted into the ceiling. Beyond lay a concrete driveway, an
-invitingly empty road. &ldquo;Lola...&rdquo;</p>
-<p>&ldquo;Okay. I&rsquo;m
-being a machine.&rdquo; She pressed a button and the car started,
+retracted into the ceiling. Beyond lay a concrete driveway, flanked
+by garden beds, and an inviting empty road. Lola said, &ldquo;Is
+something happening?&rdquo;</p>
+<p>&ldquo;No. Now
+drive.&rdquo;</p>
+<p>Lola stared at me.
+Then she leaned forward and pressed a button. The car started,
 near-silently.</p>
 <p>&ldquo;Thank you.&rdquo;
 I began to relax. Lola put the car in gear. She seemed focused but
-calm. Then a white Better Future van jumped the curb in front of us,
-engine screaming, and ruined it.</p>
+calm. She was being a machine: a beautiful, efficient machine. Then a
+white Better Future van jumped the curb, engine screaming, and slewed
+across the driveway in front of us.</p>
