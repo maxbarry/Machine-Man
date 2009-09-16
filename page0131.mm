@@ -23,8 +23,8 @@ One hundred thirty-four.&rdquo;</p>
 <p>&ldquo;One hundred
 <em>forty</em>-four.&rdquo;</p>
 <p>&ldquo;<em>Shut up!</em>&rdquo;
-Her eyes popped open, took in the guards, then squeezed shut again.
-&ldquo;<em>Oh God!</em>&rdquo;</p>
+Her eyes opened, took in the guards, and squeezed shut again. &ldquo;<em>Oh
+God!</em>&rdquo;</p>
 <p>&ldquo;Sorry.
 Sorry. It&rsquo;s just, if you&rsquo;re going to do Fibonacci...&rdquo;
 I forced myself to stop this sentence. &ldquo;Okay. You recite
