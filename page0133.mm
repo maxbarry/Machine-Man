@@ -3,6 +3,153 @@
 <p></p>
 <p></p>
 <p></p>
+<p>&ldquo;<em>Let me
+see your hands!</em>&rdquo;</p>
+<p></p>
+<p></p>
+<p>Except I don&rsquo;t
+think that was it. I think it was Carl.</p>
+<p>one yelled, and
+another said, &ldquo;<em>Now! </em>
+</p>
+<p></p>
+<p></p>
+<p>I hadn&rsquo;t even
+felt it. It occurred to me that last time, maybe what I had felt was
+not the electromagnetic pulse. Maybe it was my body&rsquo;s reaction
+to it. Maybe I had felt the Contours dying.</p>
+<p>&ldquo;Oh,&rdquo; I
+said.</p>
+<p></p>
+<p>Better Future
+guards encircled the car, pointing weapons at us. &ldquo;<em>Put your
+hands on the dash!</em>&rdquo; one yelled, and another said, &ldquo;<em>Now!
+Do it!</em>&rdquo; They seemed more nervous now than when Lola and I
+had been trying to drive a car through them.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>I... ow...
+think...&rdquo;</p>
+<p>Her foot was
+pressed on the accelerator. But we weren&rsquo;t going anywhere. The
+dash was dark. The car coasted another twenty feet down the road,
+then ran out of momentum. 
+</p>
+<p>&ldquo;Sorry.&rdquo;</p>
+<p></p>
+<p></p>
+<p>&ldquo;<em>Put your
+hands on the dash!</em>&rdquo;</p>
+<p>I glanced out the
+window to see the mustache guard. 
+</p>
+<p></p>
+<p></p>
+<p> 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&lt;&lt; Car sails
+to a halt. &gt;&gt;</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p> and we sideswiped
+a parked sedan. &ldquo;More!&rdquo;</p>
+<p>&ldquo;Eeee,&rdquo;
+said Lola. Her face was pale and sweaty. She had looked a lot like
+this right before murdering my legs.</p>
+<p>&ldquo;Open your
+eyes. We&rsquo;re okay.&rdquo;</p>
+<p>Her eyes popped
+open. &ldquo;Oh,&rdquo; she said. &ldquo;Oh, thank God.&rdquo; Her
+eyes flicked to the rear view mirror. 
+</p>
+<p></p>
+<p></p>
+<p>I was busy crushing
+a series of rose bushes while not getting killed.</p>
+<p></p>
+<p></p>
+<p></p>
+<p>The guard shot at
+us. Multiple guards shot at us, actually. I believe they were aiming
+for the tires, not our bodies, but this wasn&rsquo;t clear at the
+time and it was absolutely terrifying. It sounded like we were being
+attacked by a gang wielding baseball bats. Which would have been an
+improvement on reality, now I think about it, and maybe I should have
+tried to pretend that was happening to calm Lola down. But I was busy
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p>&lt;&lt; Now we&rsquo;ve
+got Lola fearing for <em>Carl</em> when she goes off. That&rsquo;s
+good. Keep it romantic. Later, we can make the observation that she&rsquo;s
+a healer/lover. &gt;&gt;</p>
+<p></p>
+<p></p>
+<p></p>
+<p>A low, keening
+noise came out of Lola. 
+</p>
+<p></p>
+<p>A four-way
+intersection loomed ahead. &ldquo;I think you should open your eyes
+now.&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>Trees flashed by.
+Ahead was an intersection, and I wasn&rsquo;t sure 
+</p>
+<p></p>
+<p> four-way
+intersection, followed by another, and realized that job-sharing was
+about to become difficult.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>I threw a glance
+out of the rear window in time to see the Better Future van peel onto
+the road behind us. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>&lt;&lt; Guards
+haul him out of the car. Laughable, humiliating, nervous. We realize
+they&rsquo;re nervous about Carl. &gt;&gt;</p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p>&lt;&lt; I&rsquo;d
 like a conversation between Charlie and CC. She&rsquo;s saying it&rsquo;s
