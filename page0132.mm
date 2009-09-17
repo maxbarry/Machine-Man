@@ -45,5 +45,5 @@ thought...&rdquo;</p>
 hands on the dash! Do it now!</em>&rdquo;</p>
 <p>&ldquo;I thought we
 hit...&rdquo; Then she exhaled, like: <em>Cah</em>. At least, that&rsquo;s
-what I thought. It wasn&rsquo;t until much later I realized she&rsquo;d
+what I thought. It wasn&rsquo;t until later I realized she&rsquo;d
 said: <em>Carl</em>.</p>
