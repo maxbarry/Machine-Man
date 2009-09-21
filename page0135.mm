@@ -3,17 +3,17 @@
 us,&rdquo; said Cassandra Cautery. &ldquo;I want that clear. We
 didn&rsquo;t go around asking our employees to chop off their arms.
 He knocked on my door one day and asked if I could make him like
-you.&rdquo; She rubbed her forehead. &ldquo;The problem, Charlie, is
-we&rsquo;re an engineering-heavy company. I suggest cutting short a
-prototyping stage and everybody starts jumping up and down, telling
-me why it&rsquo;ll be a disaster. But a man volunteers to have his
-arms removed, nobody sees a problem. It&rsquo;s a mentality you guys
-have, and I&rsquo;m including you in this, Charlie, that nothing&rsquo;s
-significant unless you can quantify it. You divide the whole world
-into the hard sciences and hocus-pocus. What we needed were
-psychologists, but we got them far too late because we&rsquo;re full
-of engineers, and engineers think psychologists are basically witch
-doctors.&rdquo;</p>
+you.&rdquo; She flicked a device out from somewhere, read the screen,
+then made it disappear again. &ldquo;The problem, Charlie, is we&rsquo;re
+an engineering-heavy company. I suggest cutting short a prototyping
+stage and everybody starts jumping up and down, telling me why it&rsquo;ll
+be a disaster. But a man volunteers to have his arms removed, nobody
+sees a problem. It&rsquo;s a mentality you guys have, and I&rsquo;m
+including you in this, Charlie, that nothing&rsquo;s significant
+unless you can quantify it. You divide the whole world into the hard
+sciences and hocus-pocus. What we needed were psychologists, but we
+got them far too late because we&rsquo;re full of engineers, and
+engineers think psychologists are basically witch doctors.&rdquo;</p>
 <p>I didn&rsquo;t say
 anything. She was right. Psychologists are witch doctors.</p>
 <p>&ldquo;Anyway, Carl
