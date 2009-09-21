@@ -11,8 +11,7 @@ didn&rsquo;t need legs for that.</p>
 <p>&ldquo;Stop that,&rdquo;
 the driver said. My door locked with a <em>thunk</em>. I saw his eyes
 in the rear view mirror: condescension, from a guy with one foot
-resting on the accelerator of a 200-horsepower vehicle. I didn&rsquo;t
-need that.</p>
+resting on the accelerator of a 200-horsepower vehicle.</p>
 <p>The opposite door
 opened. Cassandra Cautery slid her gray-skirted butt onto the leather
 seat. &ldquo;Go,&rdquo; she said to the driver. As the car pulled
