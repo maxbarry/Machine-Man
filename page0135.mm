@@ -4,15 +4,15 @@ us,&rdquo; said Cassandra Cautery. &ldquo;Let&rsquo;s get that clear.
 We didn&rsquo;t go around asking employees to chop off their arms. He
 knocked on my door one day and asked if we could make him like you.&rdquo;</p>
 <p>She folded her
-hands and rested them neatly on one knee. So far Cassandra Cautery
-was being very calm. There was no yelling or screaming, no rants
-about how much trouble I had caused by kicking their CEO out a window
-and running off. So clearly I was missing something.</p>
+hands and rested them neatly on one knee. So far she was being very
+calm. There was no yelling or screaming, no rants about how much
+trouble I had caused by kicking their CEO out a window and running
+off. Clearly I was missing something.</p>
 <p>&ldquo;The problem,
 Charlie, is we&rsquo;re an engineering-heavy company. I suggest
 cutting short a prototyping stage and everybody starts jumping up and
 down, telling me it&rsquo;ll be a disaster. But a man volunteers to
-have his arms replaced, nobody sees a problem. It&rsquo;s a mentality
+have his arms removed, nobody sees a problem. It&rsquo;s a mentality
 you guys have, and I&rsquo;m including you in this group, Charlie,
 that the whole world can be divided into hard science and
 hocus-pocus. That nothing&rsquo;s significant until it can be
@@ -38,10 +38,9 @@ liability that would have opened up, I don&rsquo;t even want to
 think. So I hid him from you. But of course we had to take away his
 arms, and he didn&rsquo;t like that. He didn&rsquo;t like that at
 all. We made him a new pair as fast as we could&mdash;your team was
-pretty good at that by then&mdash;but...&rdquo; She pursed her lips.
-&ldquo;Well, like I said, we were light on psychologists. You recall
-the Manager mentioning the problems we were having with the test
-subjects.&rdquo;</p>
+pretty good at that by then&mdash;but... well, like I said, we were
+light on psychologists. You recall the Manager mentioning the
+problems we were having with the test subjects.&rdquo;</p>
 <p>&ldquo;Um...&rdquo;
 That wasn&rsquo;t my standout memory from that meeting.</p>
 <p>&ldquo;Depression.
