@@ -6,7 +6,7 @@ getting closer to Better Future. &ldquo;He&rsquo;s set on the idea of
 taking away your Bioreplacements, the same way you had us take away
 his arms.&rdquo;</p>
 <p>&ldquo;But I don&rsquo;t
-have any parts.&rdquo;</p>
+have any parts left.&rdquo;</p>
 <p>&ldquo;None of
 ours, no...&rdquo; She tapped her lips.</p>
 <p>&ldquo;What?&rdquo;</p>
