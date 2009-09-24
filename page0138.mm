@@ -1,6 +1,8 @@
 <p>Page 138.</p>
 <p></p>
-<p></p>
+<p>She was more
+assured. That was the difference. She had gotten larger inside her
+head.</p>
 <p></p>
 <p></p>
 <p></p>
