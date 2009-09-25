@@ -1,7 +1,7 @@
 <p>Page 138.</p>
 <p>The streetscape
 beyond the town car&rsquo;s tinted windows grew more familiar. We
-passed an auto repair shop where I had once taken my car, and learned
+passed an auto repair shop where I had once taken my car and learned
 interesting things about diesel engines from a man who despaired at
 the disposability of modern technology. A small bakery I had visited
 twice a week for years, even though they were rude, because they made
