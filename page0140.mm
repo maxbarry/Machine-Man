@@ -1,108 +1,41 @@
 <p>Page 140.</p>
-<p>(TUES)</p>
-<p></p>
-<p>&ldquo;So here&rsquo;s
-the choice, Charlie.&rdquo; Cassandra Cautery was in front of me,
-walking backwards, as I was wheeled along the corridor. For a short
-person, she could really move those legs. &ldquo;We can get you into
-a set of legs, a new hand, right now.&rdquo; She glanced over her
-shoulder, navigated a turn. &ldquo;Or...&rdquo;</p>
+<p>&ldquo;There are
+actually two Repositories now,&rdquo; said Cassandra Cautery. The lab
+assistant wheeling me down the corridor was one of the tallest people
+I had ever seen, but Cassandra Cautery had no trouble keeping up. She
+could really motor. &ldquo;We outgrew the first one. We have so many
+parts now, Charlie. Not all entirely workable.&rdquo; She threw me a
+glance. &ldquo;Nothing ever goes perfectly the first time, right? But
+we can head straight there and see what takes your fancy.&rdquo;</p>
+<p>&ldquo;Okay.&rdquo;</p>
+<p>&ldquo;Or...&rdquo;</p>
 <p>&ldquo;Or?&rdquo;</p>
-<p>She stopped. So,
-dutifully, did the lab assistant pushing my wheelchair. I realized we
-were at a junction. To the left were the labs. Ahead were elevators.
-&ldquo;Or we run you straight into surgery.&rdquo;</p>
-<p>I didn&rsquo;t say
-anything. I felt that if I moved too suddenly, the delicate porcelien
-of the world would shatter and fall to pieces.</p>
-<p>Cassandra Cautery
-crouched in front of me and pressed her hands together, as if she
-were praying. This was pretty unnecessary&mdash;the crouching, I
-mean&mdash;because it reversed the height differential between us
-without reducing it. There was no reason for this unless she wanted
-to be lower than me. &ldquo;We have some drugs.&rdquo; Her eyes were
-very large all of a sudden. &ldquo;Some very good drugs, which we&rsquo;ve
-used successfully on several test subjects, that dramatically reduce
-the recovery time from major surgery. Well.&rdquo; She tilted her
-head. &ldquo;Maybe postpone is a better word. They make you
-functional pretty much immediately.&rdquo;</p>
-<p>I licked my lips.
-The world held together. &ldquo;So... I could have... new parts.&rdquo;</p>
-<p>&ldquo;Yes.&rdquo;</p>
-<p>&ldquo;Such as
-arms.&rdquo;</p>
-<p>&ldquo;Exactly.&rdquo;
-She nodded. &ldquo;Arms.&rdquo; She opened her mouth, as if to say
-something else, then closed it.</p>
-<p>I took a breath.
-&ldquo;It&rsquo;s all so sudden.&rdquo;</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Finish
-with either CC imploring Charlie, you&rsquo;re our only hope, you
-need to be top of your game to compete with Carl, or: Show me. I
-think Show Me, save the former for the pre-req conversation. &gt;&gt;</p>
-<p></p>
-<p>And not just arms.
-We have a pelvis. A lower torso that regulates energy 
-</p>
-<p></p>
-<p>&ldquo;Arms.
-Pelvis. Torso. We have a range.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Actually,
-the pre-reqs should require it. That&rsquo;d be a good page for
-tomorrow. The pre-reqs. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; This week
-I think they maybe prepare for Carl, but he doesn&rsquo;t come. So
-then they bulk up a little more. &gt;&gt;</p>
-<p>&lt;&lt; The big
-story here is Charlie getting new parts. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; soft
-sciences: Charlie asks Lola about id. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p><em>The Id comprises the unorganised
-part of the personality structure that contains the basic drives. It
-acts according to the pleasure principle, seeking to avoid pain or
-unpleasure. </em>
-</p>
-<p></p>
-<p></p>
-<p>A low, keening
-noise came out of Lola. 
-</p>
-<p></p>
-<p></p>
-<p>&ldquo;Think of
-Better Future as a machine with eight thousand employees. An
-artificial intelligence programmed to shift resources around to
-generate wealth and power.&rdquo;</p>
-<p></p>
-</BODY>
-</HTML>
+<p>She stopped. The
+beanpole pushing my wheelchair carried on a few steps before
+realizing, then backed up. We were at a junction, I realized: labs to
+the left, elevators ahead. &ldquo;Or we could run you straight into
+surgery.&rdquo;</p>
+<p>I said nothing.</p>
+<p>&ldquo;Because the
+thing is, we have drugs.&rdquo; She tapped her chin. It was almost as
+if this thought was just occurring to her now. But not quite. &ldquo;Some
+very good drugs, which practically eliminate recovery time from major
+surgery.&rdquo; She tilted her head. &ldquo;Well. Eliminate. Maybe
+postpone is a better word. But you could be functional pretty much
+immediately.&rdquo;</p>
+<p>&ldquo;Surgery.&rdquo;
+I was being guarded. I liked the sound of surgery. I had been looking
+forward to it for a long time. I was just thrown by the idea of
+Cassandra Cautery wanting me to have it.</p>
+<p>&ldquo;It would
+open up our options. And it&rsquo;s... well, what do you think?&rdquo;</p>
+<p>I said, &ldquo;I
+think I&rsquo;d like to see the Repository first.&rdquo;</p>
+<p>She blinked. &ldquo;All
+right. We can do that. If that&rsquo;s what you want.&rdquo;</p>
+<p>I nodded. &ldquo;Yes.&rdquo;</p>
+<p>&ldquo;All right.&rdquo;
+She smiled, as if this was totally fine. &ldquo;Then that&rsquo;s
+what we&rsquo;ll do.&rdquo; She started walking again. Just before
+the junction, she threw me a glance, to check I hadn&rsquo;t changed
+my mind. But I hadn&rsquo;t, and we turned left.</p>
