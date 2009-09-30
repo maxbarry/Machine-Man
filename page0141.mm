@@ -17,9 +17,10 @@ up at the bottom of a stairwell.&rdquo;</p>
 <p>I tried to wheel
 myself forward, and was reminded that I only had one hand. The lab
 assistant came to my rescue, sliding me within touching range. There
-were a lot of parts around me, parts on shelves and parts in foam
-packing, parts under tantalizingly translucent sheets of plastic, but
-right now I couldn&rsquo;t take my eyes off the Contours.</p>
+were a lot of parts around me here in the Repository, parts on
+shelves and parts in foam packing, parts under tantalizingly
+translucent sheets of plastic, but right now I couldn&rsquo;t take my
+eyes off the Contours.</p>
 <p>I said, &ldquo;I
 think I want to put these on.&rdquo;</p>
 <p>&ldquo;Yes,&rdquo;
