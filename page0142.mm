@@ -51,10 +51,11 @@ sound good.&rdquo;</p>
 not sure it&rsquo;s comfortable. But you can probably live with it.
 It&rsquo;s totally your choice. I will say, though, that if you do
 replace the chest, it gives you a much better spread of arm options.&rdquo;</p>
-<p>I was silent. This
-still felt wrong. I abruptly realized why: these were not my parts. I
-had not built them. They were deviations from my designs. It was like
-coming home to the woman I loved, only to find she had changed in&mdash;</p>
+<p>I frowned. A lot
+about this didn&rsquo;t feel right. And one of those things was that
+these were not my parts. I had not built them. They were deviations
+from my designs. It was like coming home to the woman I loved, only
+to find she had changed in&mdash;</p>
 <p>The shutters
 rattled up. &ldquo;<em>Where&rsquo;s Lola?</em>&rdquo;</p>
 <p>&ldquo;She&rsquo;s
