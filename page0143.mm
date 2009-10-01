@@ -2,11 +2,11 @@
 <p>The ceiling of this
 section of Better Future was a checkerboard, and every second check
 glowed. I had never really appreciated how pretty this was, until I
-was pushed along beneath it on a steel guerney. &ldquo;These lights
+was pushed along beneath it on a steel gurney. &ldquo;These lights
 are really neat,&rdquo; I said.</p>
 <p>&ldquo;Can we get
 him on the gas?&rdquo; Cassandra Cautery asked. There were four
-people walking alongside my guerney, none of whom I had seen before.
+people walking alongside my gurney, none of whom I had seen before.
 &ldquo;We have a time pressure here.&rdquo;</p>
 <p>&ldquo;I&rsquo;ll
 find out.&rdquo;</p>

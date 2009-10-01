@@ -14,7 +14,7 @@ making me tense.</p>
 look bigger,&rdquo; I said. &ldquo;It looks&mdash;&rdquo;</p>
 <p>&ldquo;Which we put
 in an abdomen unit.&rdquo; I turned. She was standing beside a low
-shelf, on which sat a steel object about the size of vaccuum cleaner.
+shelf, on which sat a steel object about the size of vacuum cleaner.
 On one side was stamped the international warning symbol for
 radiation. &ldquo;This baby provides juice not just for the legs but
 any other components you care to hook in.&rdquo;</p>
