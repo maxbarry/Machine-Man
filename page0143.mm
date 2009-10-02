@@ -1,49 +1,48 @@
 <p>Page 143.</p>
 <p>The ceiling of this
-section of Better Future was a checkerboard. Every second check
-glowed. I had never appreciated how pretty this was, until I was
-pushed along beneath it on a steel gurney. &ldquo;These lights are
-really neat,&rdquo; I said.</p>
+section of Better Future was a checkerboard. The light-colored
+squares were actually lights: they glowed uniformly, as bright in the
+corners as the middle. I had never appreciated how pretty this was,
+until I lay on a gurney and watched them pass over my head. &ldquo;These
+lights are really neat.&rdquo;</p>
 <p>&ldquo;Can we get
-him on the gas?&rdquo; This was Cassandra Cautery. She was walking
-alongside my gurney, accumulating lab assistants and other people I
-had never seen before. &ldquo;We have a time pressure.&rdquo;</p>
+him on the gas?&rdquo; This was Cassandra Cautery, walking alongside.
+Several other people were also walking alongside: we had been
+accumulating them since we left the Repository. &ldquo;We have a time
+pressure.&rdquo;</p>
 <p>&ldquo;I&rsquo;ll
 find out.&rdquo;</p>
-<p>&ldquo;Thank you.&rdquo;
-She glanced down at me. &ldquo;Almost there, Charlie.&rdquo;</p>
-<p>&ldquo;And Lola is
-meeting us at the operating theater?&rdquo;</p>
+<p>I said, &ldquo;And
+Lola will meet us at the operating theater, right?&rdquo;</p>
 <p>&ldquo;Yes.&rdquo;</p>
 <p>&ldquo;Are you
-sure?&rdquo; I was feeling light-headed. I hadn&rsquo;t had any
-drugs. It was the imminent prospect of parts. &ldquo;You really mean
-that?&rdquo;</p>
-<p>&ldquo;Charlie,&rdquo;
-she said, &ldquo;in a short while, you are going to be the fastest,
-strongest man on the planet. I wouldn&rsquo;t lie to you.&rdquo;</p>
+sure?&rdquo; I was feeling very light-headed. I hadn&rsquo;t had any
+drugs. It was the imminent prospect of parts. &ldquo;You&rsquo;re not
+just saying that?&rdquo;</p>
+<p>&ldquo;Charlie, in
+a short while you will be the most physically powerful human being on
+the planet. I wouldn&rsquo;t lie to you.&rdquo;</p>
 <p>&ldquo;Gas here.&rdquo;
-A man raised a mask. &ldquo;Head forward, Dr. Neumann.&rdquo;</p>
-<p>&ldquo;But Lola.&rdquo;
-The mask was strapped around my face. I heard a hiss. &ldquo;What
-about Lola?&rdquo;</p>
-<p>&ldquo;She&rsquo;ll
-be here to hold your hand,&rdquo; said Cassandra Cautery. &ldquo;Uh.
-Bad choice of words. But she&rsquo;ll be here.&rdquo;</p>
-<p>&ldquo;Promise?&rdquo;</p>
+A mask approached. &ldquo;Head forward, Dr. Neumann.&rdquo;</p>
+<p>&ldquo;Can you make
+a call?&rdquo; Hands took hold of my head. The mask snapped around my
+mouth and nose, muffling my words. &ldquo;Can you make sure Lola will
+be there?&rdquo;</p>
 <p>&ldquo;I swear on
-my sister&rsquo;s life.&rdquo;</p>
+my sister&rsquo;s life. She&rsquo;ll be there.&rdquo;</p>
 <p>We passed through a
-doorway. The soft checkerboard glow-squares were replaced with harsh
-surgical lights. I raised my head and saw a lot of people in green
-surgical gowns. They looked very fuzzy. Fuzzy and warm. I lay back,
-because my head was getting heavy.</p>
-<p>We stopped moving.
-I closed my eyes. Someone squeezed my hand. I felt this from a
-distance, as if it wasn&rsquo;t my hand at all. &ldquo;Charlie?&rdquo;
-I didn&rsquo;t feel like answering. &ldquo;Okay,&rdquo; said
-Cassandra Cautery. &ldquo;Let&rsquo;s take it all off.&rdquo;</p>
-<p>...&gt;&gt;&ldquo;How
-much are we doing?&rdquo;</p>
-<p>&ldquo;Okay,&rdquo;
-she said. &ldquo;Let&rsquo;s take it all off.&rdquo;</p>
+doorway. The glowing checkerboard vanished, and was replaced with
+stark white plaster and surgical lights. I raised my head and saw a
+great many people in green surgical gowns. They looked fuzzy. Fuzzy
+and warm. I lay back, because my head was getting heavy. Then, on
+impulse, I raised it again. I was under a thin sheet, but I could see
+the familiar shape of my torso, my arms. I smiled a little, and
+closed my eyes.</p>
+<p>&ldquo;He&rsquo;s
+out,&rdquo; she said. &ldquo;Okay. Go.&rdquo;</p>
+<p>I heard a rustling
+of material. A click, then an electric saw, quite loud, like someone
+was testing it: <em>vnnnn, vnnnn</em>. A man said, &ldquo;How much are
+we doing?&rdquo;</p>
+<p>&ldquo;Everything,&rdquo;
+said Cassandra Cautery. That was the last thing I heard.</p>
