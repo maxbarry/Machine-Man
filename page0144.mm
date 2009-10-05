@@ -1,13 +1,14 @@
 <p>Page 144.</p>
 <h5>CHAPTER 
 THIRTY</h5>
-<p>I became aware of
-smoke. I felt alarmed, in some small, sectioned-off part of my body.
-Smoke is rarely good. In my line of work, it signals stupidity:
-failure to adequately anticipate logical consquences, or check a
-tolerance, or convert from imperial. This smoke was curling along the
-ceiling above me. I wasn&rsquo;t sure what it signaled. I wasn&rsquo;t
-sure where I was. I just knew there was smoke.</p>
+<p>As consciousness
+returned, I became aware of smoke. I felt alarmed, in a small,
+sectioned-off part of my brain. Smoke is rarely good. In my line of
+work, it signals stupidity: failure to adequately anticipate logical
+consquences, or check a tolerance, or convert from imperial. This
+smoke was curling along the ceiling above me. I wasn&rsquo;t sure
+what it signaled. I wasn&rsquo;t sure where I was. I just knew there
+was smoke.</p>
 <p><em>Get up</em>,
 said the part of me that was worried about the smoke. But another
 part said: <em>Lie here a little longer</em>,
