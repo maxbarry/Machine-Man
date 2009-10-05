@@ -1,28 +1,23 @@
 <p>Page 145.</p>
 <p>I raised my head. I
-was in an operating theater. Now I remembered: I had been wheeled in
-here for surgery. But the room was not right. Things lay scattered
-and overturned: a trolley, drip stands, equipment that looked like
-someone should be keeping it sterile. An electric saw, its blade dark
-with what I could only assume was blood. Surgical blades glimmered at
-me from the tiles, shimmering when hit by raindrops. The doorway
-looked cracked, as if it had suffered a serious blow to its
-structural integrity. I thought: <em>Earthquake?</em></p>
+was in an operating theater. Of course I was: I had been brought here
+for surgery. But things lay scattered and overturned: a trolley, drip
+stands, equipment that looked like someone should be keeping it
+sterile. Surgical blades glimmered from the floor tiles in rapidly
+pooling water, like coins in a wishing well. There was a chunk out of
+the doorway and a long crack running up the wall. I thought:
+<em>Earthquake?</em></p>
 <p>I heard the
-coughing again, and tried to sit up. The way I did this was to plant
-my right hand on the table and lever myself up with my left elbow. It
-was a method that had worked well enough in the past. This time,
-though, I collapsed halfway through. I looked at my left arm, to see
-what the problem was, and saw: I was in serious trouble.</p>
-<p>I had been brought
-here for surgery. It had not completed, obviously: I still had
-fingers. But it had started. Someone had begun to sever my left arm
-from my shoulder. They had almost made it all the way through. From
-the gash they had left, blood pumped enthusiastically. I was lying in
-a pool of it.</p>
-<p>Panic jolted
-through me. This was the kind of wound that killed you, very quickly.
-</p>
-<p></p>
-<p></p>
-<p></p>
+coughing again. I planted my right hand on the table and levered
+myself up with my left elbow, to see who this was, but it didn&rsquo;t
+work. I looked down to see what the problem was, and realized: I was
+in serious trouble.</p>
+<p>Blood pumped
+enthusiastically from a gash in my left shoulder. No, <em>gash</em> was
+the wrong word. That implies a cut in something that is mostly whole.
+This was the opposite. I had a thin chunk of skin and muscle
+connecting me an arm that was otherwise severed. On the tiles, as if
+discarded there, was something I had mistaken for a drill. But it
+wasn&rsquo;t: it had a long, flat blade. It was a saw. Liquid red
+ribbons threaded the water around it. I had been brought in for
+surgery. They had not finished. But they had started.</p>

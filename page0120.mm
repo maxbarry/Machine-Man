@@ -61,7 +61,7 @@ It&rsquo;s just the body they&rsquo;re stuck in.&rdquo;</p>
 <p>&ldquo;What are you
 saying?&rdquo;</p>
 <p>&ldquo;Nothing.&rdquo;
-I turned the bolt over in my hands. &ldquo;I&rsquo;m just making an
+I rolled the bolt around in my hand. &ldquo;I&rsquo;m just making an
 observation.&rdquo;</p>
 <p>Silence. The door
 closed with a <em>click</em>.</p>
