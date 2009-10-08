@@ -3,128 +3,53 @@
 <p></p>
 <p></p>
 <p></p>
-<p>One of the tubes
-lightened, then ran dry. 
+<p></p>
+<p>One time in
+college, I tried to buy a pack of Doritos from a vending machine. I
+fed my bills into the slot, pressed C (firmly) then 4 (firmly), and
+waited. Nothing happened, so I pressed C-4 again (more firmly). Still
+nothing. I tried CANCEL, thinking to start over, and the machine
+whirred, the steel coil revolved, and the Doritos packet edged closer
+to the edge. But not close enough to fall.</p>
+<p>I cursed and kicked
+it, because I was 22 and there were people watching. I said, &ldquo;This
+<em>stupid</em> machine.&rdquo; It is a humiliating experience to be
+defeated by an inanimate object, especially one designed to do what
+you want.</p>
+<p>But as I stared at
+the dangling Doritos packet, a different way of looking at the
+situation occurred to me. In this scenario, the vending machine was
+intelligent and I was a machine. The vending machine, for reasons of
+its own&mdash;I don&rsquo;t think it&rsquo;s important to know the
+vending machine&rsquo;s motivation, but say it was bored&mdash;poked
+my buttons in order to elicite particular behaviors. This scenario
+made sense because if you replaced me with a different human being
+they would act the same way. There was nothing unique or
+unpredictable about me getting mad; an intelligent vending machine
+would know that&rsquo;s what humans do when you dangle snacks in
+front of them.</p>
+<p><A NAME="firstHeading1"></A>I
+spent the rest of the day trying to think why an objective observor
+should believe I was controlling the vending machine in this
+situation and not the other way around. And I couldn&rsquo;t. I had a
+brain and the vending machine didn&rsquo;t, but that was classic
+anthropocentrism:
+for all I knew, the vending machine&rsquo;s consciousness resided in
+a space I didn&rsquo;t understand; it might equally well argue that I
+couldn&rsquo;t have consciousness because I didn&rsquo;t have a coin
+slot. 
 </p>
-<p></p>
-<p>Immediately, I
-began to feel woozy. I didn&rsquo;t want to leap ahead to conclusions
-of cause and effect, because I had plenty of reasons to feel woozy
-right now, but staunching this wound instantly became my top
-priority. 
-</p>
-<p></p>
-<p>I began to reach
-conclusions. The first was that these tubes were keeping me alive.
-They were replenishing the blood I was losing out my shoulder. The
-second conclusion was that this was temporary. Even as I watched, a
-tube ran dry. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>Looking down, I
-discovered some other pertinent facts: my legs weren&rsquo;t right.
-By which I mean, I had some. I was lying beneath layers of green
-surgical cloth, saturated from water or blood or both, but they
-couldn&rsquo;t disguise the fact that I was some kind of shape. I was
-Contoured. The other important discovery was that I was connected to
-things. Half a dozen plastic tubes ran from a gap in the cloth I
-couldn&rsquo;t quite see through to bags of fluid on stands and other
-equipment behind my head. Fluid was moving through these tubes: dark
-and red.</p>
-<p></p>
-<p></p>
-<p>Two of these tubes
-seemed 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>not flat. They were
-Contoured. 
-</p>
-<p></p>
-<p>covering a definite
-legs-and-torso 
-</p>
-<p></p>
-<p>was pushing them
-into a definite legs-and-torso outline. Contoured. 
-</p>
-<p></p>
-<p>they were making
-some kind of shape</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Little
-more panic here; let&rsquo;s not get under control immediately. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I was lying in my
-own blood: I could smell it. I raised I had been bleeding for a
-while. I should</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I really needed
-some clinical detachment. 
-</p>
-<p></p>
-<p>The amount of blood
-coming out of my shoulder suggested I would be dead very soon. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>It had not
-completed, obviously: I still had fingers. But it had started.
-Someone had begun to sever my left arm from my shoulder. They had
-almost made it all the way through. From the gash they had left,
-blood pumped enthusiastically. I was lying in a pool of it.</p>
-<p></p>
-<p></p>
-<p></p>
-<p>Panic jolted
-through me. This was the kind of wound that killed you, very quickly.
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p> It was a method
-that had worked well enough in the past. This time, though, I
-collapsed halfway through. I looked at my left arm, to see what the
-problem was, and saw: 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>An electric saw,
-its blade dark with what I could only assume was blood. 
-</p>
-<p></p>
-<p>...</p>
-<p></p>
+<p>Since then, I have
+increasingly believed that human beings are inherently predictable.
+Threaten us with harm and we run away. Warm us and we relax. Offer us
+six hundred dollars a week if we sit at a desk and answer phone
+calls, and we will sit at a desk and answer phone calls. We are more
+complex than vending machines, of course. But the distinction is of
+degrees, not difference. Give me infinite computing power and perfect
+knowledge of environmental variables, and I&rsquo;m pretty sure I can
+model consciousness. I&rsquo;m pretty sure that one day, not too far
+from now, we will have definitive proof that we are all vending
+machines.</p>
 <p></p>
 <p></p>
 <p></p>
@@ -135,9 +60,6 @@ need to be top of your game to compete with Carl, or: Show me. I
 think Show Me, save the former for the Friday after the pre-req
 conversation. And put the crouch there too.&gt;&gt;</p>
 <p></p>
-<p>, because I was
-worried that if I did, the delicate porcelien of the world would
-shatter and fall to pieces.</p>
 <p>Cassandra Cautery
 crouched in front of me. This seemed unnecessary to me, because it
 reversed our height differential without significantly reducing it. 
@@ -146,10 +68,6 @@ reversed our height differential without significantly reducing it.
 <p>And not just arms.
 We have a pelvis. A lower torso that regulates energy 
 </p>
-<p></p>
-<p>&ldquo;Arms.
-Pelvis. Torso. We have a range.&rdquo;</p>
-<p></p>
 <p></p>
 <p>&lt;&lt; Mention
 sheilding. &gt;&gt;</p>
@@ -167,6 +85,14 @@ tomorrow. The pre-reqs. &gt;&gt;</p>
 <p>Page
 NOTES.</p>
 <p></p>
+<p></p>
+<p>Maybe he plugs his
+arm, and he didn&rsquo;t really need to. There&rsquo;s not too much
+blood required by his body any more? Hmm, brain definitely needs it
+though. Maybe he can shut that off. Press a switch, vrrr, 
+</p>
+<p></p>
+<p>CARL TOOK LOLA!!</p>
 <p></p>
 <p></p>
 <p></p>
