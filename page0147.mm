@@ -7,7 +7,8 @@ grip, I had to hold the cord in my teeth. Pull, bite, move hand,
 pull. It was a real trial. Then I got the thing up and thumbed on the
 power and wished I hadn&rsquo;t been so enterprising. If the cord had
 been a little further away, beyond my reach, would that have been
-such a bad way to die? I would have been blameless. Even noble.</p>
+such a bad way to die? No-one would have blamed me. I would have
+tried.</p>
 <p>One time at a mall,
 I saw a guy demonstrating an electric carving knife. It was white
 with steel blades, and he had a steaming roast chicken on a plate. As
