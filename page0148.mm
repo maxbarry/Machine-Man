@@ -1,135 +1,35 @@
 <p>Page 148.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>One time in
-college, I tried to buy a pack of Doritos from a vending machine. I
-fed my bills into the slot, pressed C (firmly) then 4 (firmly), and
-waited. Nothing happened, so I pressed C-4 again (more firmly). Still
-nothing. I tried CANCEL, thinking to start over, and the machine
-whirred, the steel coil revolved, and the Doritos packet edged closer
-to the edge. But not close enough to fall.</p>
-<p>I cursed and kicked
-it, because I was 22 and there were people watching. I said, &ldquo;This
-<em>stupid</em> machine.&rdquo; It is a humiliating experience to be
-defeated by an inanimate object, especially one designed to do what
-you want.</p>
-<p>But as I stared at
-the dangling Doritos packet, a different way of looking at the
-situation occurred to me. In this scenario, the vending machine was
-intelligent and I was a machine. The vending machine, for reasons of
-its own&mdash;I don&rsquo;t think it&rsquo;s important to know the
-vending machine&rsquo;s motivation, but say it was bored&mdash;poked
-my buttons in order to elicite particular behaviors. This scenario
-made sense because if you replaced me with a different human being
-they would act the same way. There was nothing unique or
-unpredictable about me getting mad; an intelligent vending machine
-would know that&rsquo;s what humans do when you dangle snacks in
-front of them.</p>
-<p><A NAME="firstHeading1"></A>I
-spent the rest of the day trying to think why an objective observor
-should believe I was controlling the vending machine in this
-situation and not the other way around. And I couldn&rsquo;t. I had a
-brain and the vending machine didn&rsquo;t, but that was classic
-anthropocentrism:
-for all I knew, the vending machine&rsquo;s consciousness resided in
-a space I didn&rsquo;t understand; it might equally well argue that I
-couldn&rsquo;t have consciousness because I didn&rsquo;t have a coin
-slot. 
-</p>
-<p>Since then, I have
-increasingly believed that human beings are inherently predictable.
-Threaten us with harm and we run away. Warm us and we relax. Offer us
-six hundred dollars a week if we sit at a desk and answer phone
-calls, and we will sit at a desk and answer phone calls. We are more
-complex than vending machines, of course. But the distinction is of
-degrees, not difference. Give me infinite computing power and perfect
-knowledge of environmental variables, and I&rsquo;m pretty sure I can
-model consciousness. I&rsquo;m pretty sure that one day, not too far
-from now, we will have definitive proof that we are all vending
-machines.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Finish
-with either CC imploring Charlie, you&rsquo;re our only hope, you
-need to be top of your game to compete with Carl, or: Show me. I
-think Show Me, save the former for the Friday after the pre-req
-conversation. And put the crouch there too.&gt;&gt;</p>
-<p></p>
-<p>Cassandra Cautery
-crouched in front of me. This seemed unnecessary to me, because it
-reversed our height differential without significantly reducing it. 
-</p>
-<p></p>
-<p>And not just arms.
-We have a pelvis. A lower torso that regulates energy 
-</p>
-<p></p>
-<p>&lt;&lt; Mention
-sheilding. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Actually,
-the pre-reqs should require it. That&rsquo;d be a good page for
-tomorrow. The pre-reqs. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Page
-NOTES.</p>
-<p></p>
-<p></p>
-<p>Maybe he plugs his
-arm, and he didn&rsquo;t really need to. There&rsquo;s not too much
-blood required by his body any more? Hmm, brain definitely needs it
-though. Maybe he can shut that off. Press a switch, vrrr, 
-</p>
-<p></p>
-<p>CARL TOOK LOLA!!</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; This week
-I think they maybe prepare for Carl, but he doesn&rsquo;t come. So
-then they bulk up a little more. &gt;&gt;</p>
-<p>&lt;&lt; The big
-story here is Charlie getting new parts. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; soft
-sciences: Charlie asks Lola about id. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p><em>The Id comprises the unorganised
-part of the personality structure that contains the basic drives. It
-acts according to the pleasure principle, seeking to avoid pain or
-unpleasure. </em>
-</p>
-<p></p>
-<p></p>
-<p>A low, keening
-noise came out of Lola. 
-</p>
-<p></p>
-<p></p>
-<p>&ldquo;Think of
-Better Future as a machine with eight thousand employees. An
-artificial intelligence programmed to shift resources around to
-generate wealth and power.&rdquo;</p>
-<p></p>
-</BODY>
-</HTML>
+<p>With my excess arm
+out of the way, I was able to clamp shut the jetting artery. I&rsquo;ll
+spare you the specifics. Let&rsquo;s just say it was a temporary
+solution involving my fingers. I then spent the next forty minutes
+getting off the table. It took this long because I had to do
+everything with my mouth. First I pulled back a few layers of
+surgical cloth with my teeth. At this point I gained a much better
+appreciation for why Better Future test subjects were having
+psychological problems. Because all of a sudden, despite everything
+I&rsquo;d ever thought, all I wanted to do was let go of my artery
+and die.</p>
+<p>My body ended at
+the sternum. I couldn&rsquo;t tell exactly where. I was wrapped in a
+flexible plastic-silicon bandage: all I knew was that above this was
+flesh and below was metal. I guess it was the abdomen unit I&rsquo;d
+inspected earlier, but it was encased in silver-black titanium.
+Etched into the metal where my belly button should be was a circular
+Better Future logo. My hips were multi-axis servo-magnetics. My legs
+were the black Contour Threes.</p>
+<p>I was going to
+vomit. Some part of me that had been silent for a long time flexed in
+violent mental rejection, wailed that <em>this should not be</em>. I
+closed my eyes for a while and thought about Lola until it passed.</p>
+<p>I was weakening. I
+had to forget about who or what I was and concentrate on staying
+alive. That meant getting off this table. Eventually I spotted it: a
+thick plastic handle jutting out of my titanium side that didn&rsquo;t
+look like it belonged. What it looked like was a damper: a safety
+switch that prevented the abdomen from powering up.</p>
+<p>I lay there until I
+was sure I had no better options. Then I released my shoulder,
+grabbed at the handle, and pulled. It put up a fight, but I got it.
+Something clicked. I heard a high-pitched whine, a deep hum. I felt
+warmth. And I began to cry, because now I was going to live.</p>
