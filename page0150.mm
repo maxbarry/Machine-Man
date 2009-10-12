@@ -1,6 +1,36 @@
 <p>Page 150.</p>
-<p>
+<p>I sucked in breath
+to call for help and coughed instead. The smoke was beginning to
+sting my eyes; this fire sprinkler...</p>
+<p></p>
+<p>I tried again, and
+when that got no response, headed for the doorway. &ldquo;I&rsquo;ll
+get help,&rdquo; I told the dying man in green scrubs, but I don&rsquo;t
+know if he heard me, or believed it. The corridor&rsquo;s checkboard
+ceiling was invisible beyond a roiling layer of smoke, like
+thunderclouds; water fell this, making it quite a realistic
+ecosystem. 
 </p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>Cassandra Cautery
+had not been lying about the improved tactile feedback</p>
+<p></p>
+<p>ceiling of the
+corridor corridor was In the corridor was more smoke and more water
+falling from the ceiling. There were also lots of marks on the walls:
+dents, scrapes, and, in one place, a hole clear through to the
+adjoining room big enough for me to put my head through. I did not
+put my head through it. I broke into a trot.</p>
+<p>These new legs,
+they were really tore up the floor.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
@@ -11,67 +41,9 @@
 <p></p>
 <p></p>
 <p>I suspected that I
-could help this guy about as much as he could help me if something my
+could help this guy about as much as he could help me if my
 servo-magnetic disks became unaligned. 
 </p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>servo-magnetics 
-</p>
-<p></p>
-<p></p>
-<p>It seemed safe to
-assume this was the guy I&rsquo;d heard coughing. 
-</p>
-<p>Feet tall</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>, it did not seem
-so bad to be metal.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Sitting on the
-tiles with his back against the wall was a man in green surgical
-scrubs. He was watching me. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
 <p></p>
 <p></p>
 <p></p>
@@ -101,8 +73,9 @@ humans do when you dangle snacks in front of them.</p>
 <p><A NAME="firstHeading1"></A>I
 spent the rest of the day trying to think why an objective observor
 should believe I was controlling the vending machine in this
-situation and not the other way around. And I couldn&rsquo;t. I had a
-brain and the vending machine didn&rsquo;t, but that was classic
+situation and not the other way around. And
+I couldn&rsquo;t. I had a brain and the vending machine didn&rsquo;t,
+but that was classic
 anthropocentrism: for all I
 knew, the vending machine&rsquo;s consciousness resided in a space I
 didn&rsquo;t understand. It might argue I couldn&rsquo;t have
