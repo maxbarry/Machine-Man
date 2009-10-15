@@ -5,8 +5,8 @@ blood-stained towel pressed to her face and two orbiting assistants
 who implored her to please sit down, let someone attend to that head.
 I had never seen Cassandra Cautery mad before, or rather, I&rsquo;d
 thought I had, but I hadn&rsquo;t. Her jaw muscles reminded me of
-insects that had to bear food several times their own body weight
-back to the nest.</p>
+insects that had to bear food several times their own weight back to
+the nest.</p>
 <p>I was trying to
 stand still while men wrestled an arm onto me. It was an odd-looking
 arm, not a model I&rsquo;d seen before, with a thin, tubular bicep
@@ -54,7 +54,7 @@ eye. A tear slipped down her cheek. Her eye popped open. &ldquo;And
 <em>look at this shit!</em>&rdquo;</p>
 <p>The room fell
 silent but for the labored breathing of green-swathed men struggling
-to fit me into an artificial arm. 
+to connect me to an artificial arm. 
 </p>
 <p>&ldquo;It&rsquo;s
 okay,&rdquo; she said. &ldquo;It&rsquo;s... under control.&rdquo; But
