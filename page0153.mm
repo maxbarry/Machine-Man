@@ -1,20 +1,25 @@
 <p>Page 153.</p>
-<p>(FRI)</p>
-<p></p>
-<p></p>
-<p>&lt;&lt; CC
-explains the gun. Charlie: why the FUCK did you think I&rsquo;d want
-a gun in my arm? I&rsquo;m not a fucking soldier! CC: Look, we can&rsquo;t
-stop Carl. We&rsquo;re out of options here. Charlie: Maybe I don&rsquo;t
-have a beef with Carl. He left me alone, he doesn&rsquo;t want to
-kill me, you and Carl sort out your fucking differences. CC: &ldquo;He
-took Lola,&rdquo; she said, and everything washed red. &lt;==
-Melodramatic, but that kinda thing. &gt;&gt;</p>
-<p></p>
-<p>&ldquo;Please, let
-them look at your head,&rdquo; said one of Cautery&rsquo;s
-assistants. &ldquo;It could be fractured.&rdquo;</p>
 <p></p>
 <p></p>
 <p></p>
 <p></p>
+<p></p>
+<p>She looked at me
+again. &ldquo;Carl found you. We couldn&rsquo;t stop him. He stood
+right here.&rdquo;</p>
+<p>&ldquo;I thought
+you said he wanted to kill me.&rdquo;</p>
+<p>&ldquo;I said
+Carl&rsquo;s <em>nuts</em>. I don&rsquo;t know what he&rsquo;s
+thinking. Next time you see him, you ask him what the hell he&rsquo;s
+doing. Check that. Next time you see him, just kill him.&rdquo;</p>
+<p>&ldquo;Why don&rsquo;t
+<em>you</em> kill him,&rdquo; I said. &ldquo;You&rsquo;re the ones with
+guns.&rdquo;</p>
+<p>She looked at the
+prosthetic arm. The two men had aligned it with my shoulder. A third
+was fooling around somewhere near my spine. Something locked into
+place with a <em>thunk</em>. I became abruptly aware that my spine was
+not bone. Cassandra Cautery said, &ldquo;Actually...&rdquo;</p>
+<p>&ldquo;Oh,&rdquo; I
+said.</p>
