@@ -11,4 +11,10 @@ kill me, you and Carl sort out your fucking differences. CC: &ldquo;He
 took Lola,&rdquo; she said, and everything washed red. &lt;==
 Melodramatic, but that kinda thing. &gt;&gt;</p>
 <p></p>
+<p>&ldquo;Please, let
+them look at your head,&rdquo; said one of Cautery&rsquo;s
+assistants. &ldquo;It could be fractured.&rdquo;</p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
