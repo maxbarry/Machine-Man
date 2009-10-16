@@ -3,9 +3,9 @@
 you,&rdquo; said Cassandra Cautery. One tear after another rolled
 down her cheek, but otherwise she was very calm. I found that a
 little disturbing. Of course, I was in the middle of having a
-prosthetic fitted to replace an arm I&rsquo;d sawn off myself, so it
-probably worked both ways. &ldquo;We couldn&rsquo;t stop him. He
-stood right here and looked at you.&rdquo;</p>
+pregnant-looking prosthetic fitted to replace an arm I&rsquo;d sawn
+off myself, so it probably worked both ways. &ldquo;We couldn&rsquo;t
+stop him. He stood right here and looked at you.&rdquo;</p>
 <p>&ldquo;I thought he
 wanted to kill me.&rdquo;</p>
 <p>&ldquo;He probably
