@@ -23,7 +23,7 @@ guns.&rdquo;</p>
 <p>Cassandra Cautery
 looked at the prosthetic arm. The two men had aligned it with my
 shoulder; a third was fooling around near my spine. He strained, and
-something locked into place with a sound like: <em>chang</em>. I
+something locked into place with a sound like: <em>snack</em>. I
 realized that my spine was not bone. Cassandra Cautery said,
 &ldquo;Actually...&rdquo;</p>
 <p>&ldquo;Oh,&rdquo; I
