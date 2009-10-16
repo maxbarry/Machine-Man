@@ -1,11 +1,21 @@
 <p>Page 154.</p>
 <h5>CHAPTER 
 THIRTY-TWO</h5>
+<p>&ldquo;No,&rdquo; I
+said.</p>
+<p>&lt;&lt; CC &gt;&gt;</p>
+<p>&ldquo;No.&rdquo;</p>
+<p>&lt;&lt; CC &gt;&gt;</p>
+<p>&ldquo;Stop,&rdquo;
+I said. &ldquo;No. No. I can&rsquo;t say this too strongly. No.&rdquo;</p>
+<p>&lt;&lt; CC &gt;&gt;</p>
+<p>&ldquo;I&rsquo;m
+not a super-soldier. I&rsquo;m not.&rdquo;</p>
 <p></p>
 <p>&ldquo;I cannot
 express too strongly how very very much I don&rsquo;t want to be a
 super-soldier.&rdquo;</p>
-<p></p>
+<p><em>&lt;&lt; bit cartoony, this: &gt;&gt;</em></p>
 <p>&ldquo;Why,&rdquo;
 I said. &ldquo;Why why...&rdquo; It turned out there was no good way
 to say it. &ldquo;Why did you think I&rsquo;d want a gun on my arm?&rdquo;</p>
@@ -25,34 +35,6 @@ science guy and send him after a rogue employee?&rdquo;</p>
 <p>&ldquo;I don&rsquo;t
 care!&rdquo; I swung the gun again, for emphasis. &ldquo;This is not
 happening! There are no circumstances under which I will do this!&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;You said
-yourself, he stood right next to me, he let me be. Carl is <em>your</em>
-problem<em>.</em> I don&rsquo;t have a problem with him!&rdquo;</p>
-<p>&ldquo;He probably
-thought you were as good as dead,&rdquo; said Cassandra Cautery. &ldquo;You
-were unconscious with your arm hanging off.&rdquo;</p>
-<p>&ldquo;I&rsquo;ll
-take that chance!&rdquo;</p>
-<p>&ldquo;Shut up,&rdquo;
-said Cassandra Cautery. Pink splotches mottled her face. Her chin
-trembled. &ldquo;Do you know how hard this is for me, Charlie? Do
-you?&rdquo;</p>
-<p></p>
-<p></p>
-<p>She was very angry
-or very upset, or both. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
 <p></p>
 <p></p>
 <p></p>
