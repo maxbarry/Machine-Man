@@ -8,9 +8,9 @@ probably worked both ways. &ldquo;We couldn&rsquo;t stop him. He
 stood right here and looked at you.&rdquo;</p>
 <p>&ldquo;I thought he
 wanted to kill me.&rdquo;</p>
-<p>&ldquo;I suppose he
-thought you were as good as dead. Your arm was hanging off.&rdquo;</p>
-<p>&ldquo;Still. Why
+<p>&ldquo;No doubt he
+figured you were as good as dead. Your arm was hanging off.&rdquo;</p>
+<p>&ldquo;Still... why
 not make sure?&rdquo;</p>
 <p>&ldquo;I don&rsquo;t
 know, Charlie. He&rsquo;s unhinged. I don&rsquo;t know what he&rsquo;s
