@@ -10,13 +10,13 @@ stood right here and looked at you.&rdquo;</p>
 wanted to kill me.&rdquo;</p>
 <p>&ldquo;He probably
 thought you were as good as dead. Your arm was hanging off.&rdquo;</p>
-<p>&ldquo;Still,&rdquo;
-I said. &ldquo;Why not make sure?&rdquo;</p>
-<p>&ldquo;Because he&rsquo;s
-nuts. I don&rsquo;t know what he&rsquo;s thinking. Look, if it
-bothers you so much, next time you see him, ask what the hell he
-thinks he&rsquo;s doing. Check that. Next time you see him, just kill
-him.&rdquo;</p>
+<p>&ldquo;Still. Why
+not make sure?&rdquo;</p>
+<p>&ldquo;I don&rsquo;t
+know, Charlie. He&rsquo;s nuts. I don&rsquo;t know what he&rsquo;s
+thinking. Look, if it bothers you so much, next time you see him, ask
+what the hell he thinks he&rsquo;s doing. Check that. Next time you
+see him, just kill him.&rdquo;</p>
 <p>&ldquo;Why don&rsquo;t
 <em>you</em> kill him,&rdquo; I said. &ldquo;You&rsquo;re the ones with
 guns.&rdquo;</p>
