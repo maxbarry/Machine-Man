@@ -2,6 +2,10 @@
 <h5>CHAPTER 
 THIRTY-TWO</h5>
 <p></p>
+<p>&ldquo;I cannot
+express too strongly how very very much I don&rsquo;t want to be a
+super-soldier.&rdquo;</p>
+<p></p>
 <p>&ldquo;Why,&rdquo;
 I said. &ldquo;Why why...&rdquo; It turned out there was no good way
 to say it. &ldquo;Why did you think I&rsquo;d want a gun on my arm?&rdquo;</p>

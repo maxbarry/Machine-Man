@@ -20,8 +20,8 @@ you see him, just kill him.&rdquo;</p>
 <p>&ldquo;Why don&rsquo;t
 <em>you</em> kill him,&rdquo; I said. &ldquo;You&rsquo;re the ones with
 guns.&rdquo;</p>
-<p>Cassandra Cautery
-looked at the metal arm. The two men had aligned it with my shoulder;
-a third was fooling around near my spine. He strained, and something
-locked into place with a sound like: <em>snack</em>. I realized that my
-spine was not bone. Cassandra Cautery said, &ldquo;Actually...&rdquo;</p>
+<p>She looked at the
+metal arm. The two men had aligned it with my shoulder; a third was
+fooling around near my spine. They strained, and something locked
+together with a sound like: <em>snack</em>. Cassandra Cautery said,
+&ldquo;Actually...&rdquo;</p>
