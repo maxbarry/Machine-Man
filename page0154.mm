@@ -1,65 +1,64 @@
 <p>Page 154.</p>
 <h5>CHAPTER 
 THIRTY-TWO</h5>
-<p>&ldquo;No,&rdquo; I
-said.</p>
-<p>&lt;&lt; CC &gt;&gt;</p>
-<p>&ldquo;No.&rdquo;</p>
-<p>&lt;&lt; CC &gt;&gt;</p>
-<p>&ldquo;Stop,&rdquo;
-I said. &ldquo;No. No. I can&rsquo;t say this too strongly. No.&rdquo;</p>
-<p>&lt;&lt; CC &gt;&gt;</p>
-<p>&ldquo;I&rsquo;m
-not a super-soldier. I&rsquo;m not.&rdquo;</p>
-<p></p>
-<p>&ldquo;I cannot
-express too strongly how very very much I don&rsquo;t want to be a
-super-soldier.&rdquo;</p>
-<p><em>&lt;&lt; bit cartoony, this: &gt;&gt;</em></p>
-<p>&ldquo;Why,&rdquo;
-I said. &ldquo;Why why...&rdquo; It turned out there was no good way
-to say it. &ldquo;Why did you think I&rsquo;d want a gun on my arm?&rdquo;</p>
-<p>&ldquo;Not just any
-gun,&rdquo; said Jason. &ldquo;This is the Devastator, from Special
-Projects. Four hundred rounds per minute, quick-changing&mdash;&rdquo;</p>
-<p>&ldquo;Shut up,&rdquo;
-I said. &ldquo;I don&rsquo;t care, Jason. <em>I don&rsquo;t want a gun
-on my arm</em>.&rdquo; I tried to gesture, and my gun-arm swung
-through the air. Everybody stepped back. &ldquo;I&rsquo;m not a
-<em>soldier</em>! I&rsquo;m not going to <em>shoot</em> anyone!&rdquo;</p>
-<p>&ldquo;You settle
-down,&rdquo; said Cassandra Cautery. &ldquo;We&rsquo;re out of
-options, Charlie. You think this is what I want? You think that&rsquo;s
-my idea of good corporate governance, strap a missile-mounted to a
-science guy and send him after a rogue employee?&rdquo;</p>
-<p>&ldquo;I don&rsquo;t
-care!&rdquo; I swung the gun again, for emphasis. &ldquo;This is not
-happening! There are no circumstances under which I will do this!&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; CC
-explains the gun. Charlie: why the FUCK did you think I&rsquo;d want
-a gun in my arm? I&rsquo;m not a fucking soldier! CC: Look, we can&rsquo;t
-stop Carl. We&rsquo;re out of options here. Charlie: Maybe I don&rsquo;t
-have a beef with Carl. He left me alone, he doesn&rsquo;t want to
-kill me, you and Carl sort out your fucking differences. CC: &ldquo;He
-took Lola,&rdquo; she said, and everything washed red. &lt;==
-Melodramatic, but that kinda thing. &gt;&gt;</p>
-<p></p>
-<p>&ldquo;Please, let
-them look at your head,&rdquo; said one of Cautery&rsquo;s
-assistants. &ldquo;It could be fractured.&rdquo;</p>
-<p></p>
-<p></p>
-<p>I couldn&rsquo;t
-find a way to phrase the question that wasn&rsquo;t insane. 
+<p>I said, &ldquo;No.&rdquo;</p>
+<p>&ldquo;So far we&rsquo;ve
+been able to keep the authorities out of this,&rdquo; said Cassandra
+Cautery. &ldquo;Although that required calling in a lot of favors,
+and we can&rsquo;t keep doing that. I don&rsquo;t want to bore you
+with the details, but there are some things you can&rsquo;t ask a
+government official to do no matter how much you contribute to their
+campaign, and one of those things is ignore a mentally unstable
+robot-man wandering around breaking things.&rdquo;</p>
+<p>&ldquo;No. <em>No.</em>&rdquo;</p>
+<p>&ldquo;All we need
+to do is take him down. Then this whole situation, it was just a
+little internal product test that didn&rsquo;t go quite right. We
+have those. No big deal, no press story, no congressional
+investigations. You see? You see how close we are to making this all
+okay?&rdquo;</p>
+<p>&ldquo;Stop. No. I
+can&rsquo;t say this strongly enough. I am not going to hunt down
+Carl. I am not going to <em>shoot</em> at him.&rdquo; I heard panic in
+my voice, because when two people disagree about something obvious,
+it means one of them has access to better information.</p>
+<p>&ldquo;Online,&rdquo;
+said one of the men. I felt a distant prickling, like somebody
+telling me a story about my childhood. At first I couldn&rsquo;t tell
+where it was. Then it grew sharper, and I realized it was in my arm,
+the one I didn&rsquo;t have a second ago. 
 </p>
-<p></p>
-<p></p>
-<p> why...&rdquo; The
-question felt too big to fit through my brain. &ldquo;Why did you
-think I&rsquo;d want a <em>gun on my arm</em>?&rdquo;</p>
-<p></p>
-<p></p>
+<p>&ldquo;Ow,&rdquo; I
+said. &ldquo;<em>Ow</em>.&rdquo; I gripped the metal bicep with my
+organic hand, trying to choke off the line of electronic ants I could
+feel marching there.</p>
+<p>&ldquo;That&rsquo;s
+your brain adapting to the nerve signals,&rdquo; said Jason. &ldquo;It&rsquo;ll
+feel weird for about six days, but then you&rsquo;ll get used to it.&rdquo;</p>
+<p>&ldquo;Take it
+off!&rdquo; At this point I must have gestured, because the gun-arm
+swung in an arc and nearly decapitated one of the guys who had
+attached it. &ldquo;I want it off!&rdquo; A rapid clicking noise came
+from the arm, like a nine-year-old riding a bike with playing cards
+stuck in the spokes. I had seen a boy with a bike like that once,
+when I was a kid. I thought it was the coolest thing ever.</p>
+<p>&ldquo;He&rsquo;s
+firing,&rdquo; someone said. Jason said, &ldquo;Dr. Neumann! Please
+stop doing that. You&rsquo;ll damage the hammers.&rdquo;</p>
+<p>&ldquo;I don&rsquo;t
+want this! You hear me? I&rsquo;m not a super-soldier! I&rsquo;m not
+doing this! There is no conceivable situation in which I will do
+this!&rdquo;</p>
+<p>&ldquo;<em>Charlie!</em>&rdquo;
+shouted Cassandra Cautery. I jumped, because a woman opening her
+throat and letting rip: I don&rsquo;t think I&rsquo;d heard that
+before. &ldquo;I wasn&rsquo;t going to mention this until you were
+used to the weapon, because I didn&rsquo;t want you running off after
+Carl without knowing what you&rsquo;re doing. But if you won&rsquo;t
+listen to&mdash;&rdquo;</p>
+<p>&ldquo;I&rsquo;m
+not running after Carl! What is wrong with you? <em>I will not shoot
+Carl!</em>&rdquo;</p>
+<p>&ldquo;He took
+Lola.&rdquo; A touch of something like sympathy entered her voice.
+&ldquo;Carl took Lola.&rdquo;</p>
