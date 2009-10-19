@@ -27,12 +27,12 @@ heard panic in my voice, because when two people disagree about
 something obvious, it means one of them knows something the other
 doesn&rsquo;t.</p>
 <p>&ldquo;Online,&rdquo;
-said one of the men. I felt a distant prickling, like somebody
-telling me a story about my childhood. At first I couldn&rsquo;t tell
-where it was. As it grew sharper, I realized it was in my arm, the
-one I didn&rsquo;t have a second ago.</p>
-<p>&ldquo;Ow,&rdquo; I
-said. &ldquo;<em>Ow</em>.&rdquo; I gripped the metal bicep with my
+said one of the men.</p>
+<p>I felt a distant
+prickling, like somebody telling me a story about my childhood. At
+first I couldn&rsquo;t tell where it was. As it grew sharper, I
+realized it was in my arm, the one I didn&rsquo;t have a second ago.
+&ldquo;Ow. <em>Ow</em>.&rdquo; I gripped the metal bicep with my
 organic hand, trying to choke off the line of electronic ants I could
 feel marching there.</p>
 <p>&ldquo;That&rsquo;s
