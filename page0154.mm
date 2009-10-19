@@ -52,7 +52,8 @@ this!&rdquo;</p>
 <p>&ldquo;<em>Charlie!</em>&rdquo;
 shouted Cassandra Cautery. I jumped, because a woman opening her
 throat and letting rip: I don&rsquo;t think I&rsquo;d heard that
-before. &ldquo;I wasn&rsquo;t going to mention this until you were
+before. A trickle of blood had escaped from her towel and ran down
+her cheek. &ldquo;I wasn&rsquo;t going to mention this until you were
 used to the weapon, because I didn&rsquo;t want you running off after
 Carl without knowing what you&rsquo;re doing. But if you won&rsquo;t
 listen to&mdash;&rdquo;</p>

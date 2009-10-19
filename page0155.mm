@@ -1,125 +1,57 @@
 <p>Page 155.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&rsquo;m not
-shooting at anyone, ever!&rdquo;</p>
-<p></p>
-<p></p>
-<p>&ldquo;That&rsquo;s
-not a problem. That&rsquo;s the <em>opposite</em> of the problem. The
-problem is you&rsquo;ve put a gun on my arm and there is no situation
-in which that is okay!&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>we had put you
-through some basic training, 
-</p>
-<p></p>
-<p>you understood the
-situation properly, because it&rsquo;s really important you
-understand the situation properly, Charlie, it&rsquo;s really
-important. I don&rsquo;t want you running off after Carl until you
-know what you&rsquo;re doing.&rdquo;</p>
-<p></p>
-<p></p>
-<p>I was not used to
-women shouting. 
-</p>
-<p>Her voice startled
-me: I had not heard many women raw emotion.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;Please,
-Charlie,&rdquo; she said. &ldquo;Just give it a chance.&rdquo;</p>
-<p>&ldquo;No! No! I
-don&rsquo;t want a gun! You hear me? I&rsquo;m not a super-soldier! I
-am not doing this!&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;I cannot
-express too strongly how very very much I don&rsquo;t want to be a
-super-soldier.&rdquo;</p>
-<p><em>&lt;&lt; bit cartoony, this: &gt;&gt;</em></p>
-<p>&ldquo;Why,&rdquo;
-I said. &ldquo;Why why...&rdquo; It turned out there was no good way
-to say it. &ldquo;Why did you think I&rsquo;d want a gun on my arm?&rdquo;</p>
-<p>&ldquo;Not just any
-gun,&rdquo; said Jason. &ldquo;This is the Devastator, from Special
-Projects. Four hundred rounds per minute, quick-changing&mdash;&rdquo;</p>
-<p>&ldquo;Shut up,&rdquo;
-I said. &ldquo;I don&rsquo;t care, Jason. <em>I don&rsquo;t want a gun
-on my arm</em>.&rdquo; I tried to gesture, and my gun-arm swung
-through the air. Everybody stepped back. &ldquo;I&rsquo;m not a
-<em>soldier</em>! I&rsquo;m not going to <em>shoot</em> anyone!&rdquo;</p>
-<p>&ldquo;You settle
-down,&rdquo; said Cassandra Cautery. &ldquo;We&rsquo;re out of
-options, Charlie. You think this is what I want? You think that&rsquo;s
-my idea of good corporate governance, strap a missile-mounted to a
-science guy and send him after a rogue employee?&rdquo;</p>
-<p>&ldquo;I don&rsquo;t
-care!&rdquo; I swung the gun again, for emphasis. &ldquo;This is not
-happening! There are no circumstances under which I will do this!&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Why have
-they not been able to kill Carl? (a) guards like him, (b) he stole a
-anti-gun gun&mdash;a thin fiber smart gun, sticks to bullets and
-pulls them off course, (c) &rsquo;s got defenses against regular
-bullets, (c) they tried the sonic gun but ___ &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; CC
-explains the gun. Charlie: why the FUCK did you think I&rsquo;d want
-a gun in my arm? I&rsquo;m not a fucking soldier! CC: Look, we can&rsquo;t
-stop Carl. We&rsquo;re out of options here. Charlie: Maybe I don&rsquo;t
-have a beef with Carl. He left me alone, he doesn&rsquo;t want to
-kill me, you and Carl sort out your fucking differences. CC: &ldquo;He
-took Lola,&rdquo; she said, and everything washed red. &lt;==
-Melodramatic, but that kinda thing. &gt;&gt;</p>
-<p></p>
-<p>&ldquo;Please, let
-them look at your head,&rdquo; said one of Cautery&rsquo;s
-assistants. &ldquo;It could be fractured.&rdquo;</p>
-<p></p>
-<p></p>
-<p>I couldn&rsquo;t
-find a way to phrase the question that wasn&rsquo;t insane. 
-</p>
-<p></p>
-<p></p>
-<p> why...&rdquo; The
-question felt too big to fit through my brain. &ldquo;Why did you
-think I&rsquo;d want a <em>gun on my arm</em>?&rdquo;</p>
-<p></p>
-<p></p>
+<p>&ldquo;He came in
+through the lobby,&rdquo; said Jason. Cassandra Cautery had left,
+presumably to have that cut attended to. &ldquo;Which I think was
+something of a surprise to everyone here because, well, there are a
+lot of entrances and a security guard knows them all. Of course, we
+had people in the lobby. We had snipers on the roof, we had guys in
+mounted Hummers. We deployed some weaponry from the Speculative
+Military Products people that I don&rsquo;t even think is out of
+prototype. There was a sonic gun in the underground parking lot, the
+back lawn was sown with EMP mines, they did that weeks ago, and the
+lobby guys set up a... well, I guess it was an electroshock cannon.
+Like a big tazer, firing a couple hundred electrified darts a minute.</p>
+<p>&ldquo;So Carl
+turns up. And&mdash;I don&rsquo;t know if anyone told you this, but
+the reason things turned ugly with Carl, it was because he was trying
+to steal stuff. He was sneaking parts and equipment out of the
+building. I don&rsquo;t know what a guy wants with multiple sets of
+hands, but...&rdquo; His eyes flicked at me, then away. &ldquo;Anyway,
+one of the things Carl took was a Fiber Shield. I don&rsquo;t know if
+nobody noticed it missing, or they just figured Carl wouldn&rsquo;t
+deploy it, or what. But he did. He turned up and threw down the
+shield and they shot at him and that&rsquo;s what happened.&rdquo; He
+studied my face. &ldquo;You went to the presentation on the Fiber
+Shield, didn&rsquo;t you?&rdquo;</p>
+<p>I looked at him.</p>
+<p>&ldquo;Oh. It&rsquo;s,
+um, essentially a bomb. It throws out this fog of tiny fiber strips,
+like ribbons. They&rsquo;re harmless, but they float in the air,
+millions of them, and their ends are sticky. The idea is that when
+someone shoots into that fog, the bullet hits a ribbon and the ribbon
+sticks to it. Now it&rsquo;s not balanced, so it gets pulled
+off-course. It might go left, right, who knows. The point is it&rsquo;s
+diverted.</p>
+<p>&ldquo;This
+presentation, they showed how it&rsquo;s almost impossible to hit a
+target twenty feet behind the fog. They did five or six test shots,
+and each one missed. Some missed by a lot. It was pretty cool. It&rsquo;s
+not really guaranteed protection, you know, like I wouldn&rsquo;t
+want to stake my life on it, because the amount of diversion depends
+on how many ribbons the bullet hits, the angle at each collision, all
+these random variables. The project leader, that&rsquo;s Caroline
+Edwards, who did that really interesting paper on creating disruptive
+resonance in inner ear fluid, if you saw that... oh, well, Caroline
+said, you fire enough bullets, eventually one will go straight. So
+maybe that&rsquo;s what the security guys were thinking.</p>
+<p>&ldquo;So Carl
+turns up on the front lawn. He sets off that bomb, and everyone
+starts shooting. I was in the lab, watching on CCTV. There are
+literally like fifty guys pouring out gunfire, and maybe that would
+have been okay, but the guys on the electroshock cannon start
+shooting, too, and they fill the air with million-volt darts. Those
+darts, they&rsquo;re a lot lighter than bullets, so they hit the fog
+and go <em>everywhere</em>. They&rsquo;re hitting our own guys, they&rsquo;re
+starting fires, they&rsquo;re landing on the roof. Then a Hummer
+takes a hit in the fuel tank and it&rsquo;s chaos, nothing but smoke
+and fire and people yelling, and Carl does what he likes.&rdquo;</p>
