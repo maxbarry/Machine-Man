@@ -6,6 +6,15 @@
 <p></p>
 <p></p>
 <p></p>
+<p>&ldquo;I wasn&rsquo;t
+going to mention this until you were used to the weapon, because I
+didn&rsquo;t want you running off after Carl without knowing what
+you&rsquo;re doing. But if you won&rsquo;t listen to&mdash;&rdquo;</p>
+<p>&ldquo;I&rsquo;m
+not running after Carl! What is wrong with you? <em>I will not shoot
+Carl!</em>&rdquo;</p>
+<p></p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
