@@ -33,7 +33,7 @@ prickling, like somebody telling me a story about my childhood. At
 first I couldn&rsquo;t tell where it was. As it grew sharper, I
 realized it was in my arm, the one I didn&rsquo;t have a second ago.
 &ldquo;Ow. <em>Ow</em>.&rdquo; I gripped the metal bicep with my
-organic hand, trying to choke off the line of electronic ants I could
+organic hand, trying to choke off the line of electric ants I could
 feel marching there.</p>
 <p>&ldquo;That&rsquo;s
 your brain adapting to the nerve signals,&rdquo; said Jason. &ldquo;It&rsquo;ll
