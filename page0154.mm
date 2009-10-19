@@ -59,7 +59,5 @@ Neumann&mdash;&rdquo;</p>
 off!</em>&rdquo;</p>
 <p>&ldquo;<em>Charlie!</em>&rdquo;
 shouted Cassandra Cautery. I jumped, because a woman opening her
-throat and letting rip: I didn&rsquo;t hear that very often. A
-trickle of blood had escaped from her towel and was slowly following
-the curve of her jaw. &ldquo;He took Lola.&rdquo; Her voice softened.
-&ldquo;Carl took Lola.&rdquo;</p>
+throat and letting rip: I didn&rsquo;t hear that very often. &ldquo;He
+took Lola.&rdquo; Her voice softened. &ldquo;Carl took Lola.&rdquo;</p>
