@@ -2,6 +2,14 @@
 <p></p>
 <p></p>
 <p></p>
+<p>&lt;&lt; Charlie
+realizes Carl doesn&rsquo;t sound that insane. &gt;&gt;</p>
+<p></p>
+<p>I felt nervous. I
+felt sick. I felt angry.</p>
+<p></p>
+<p></p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
