@@ -102,14 +102,14 @@ mad; an intelligent vending machine would know that&rsquo;s what
 humans do when you dangle snacks in front of them.</p>
 <p><A NAME="firstHeading1"></A>I
 spent the rest of the day trying to think why an objective observor
-should believe I was controlling the vending machine in this
-situation and not the other way around. And
-I couldn&rsquo;t. I had a brain and the vending machine didn&rsquo;t,
-but that was classic
-anthropocentrism: for all I
-knew, the vending machine&rsquo;s consciousness resided in a space I
-didn&rsquo;t understand. It might argue I couldn&rsquo;t have
-consciousness because I didn&rsquo;t have a coin slot. 
+should believe I was
+controlling the vending machine in this situation and not the other
+way around. And I couldn&rsquo;t.
+I had a brain and the vending machine didn&rsquo;t, but that was
+classic anthropocentrism:
+for all I knew, the vending machine&rsquo;s consciousness resided in
+a space I didn&rsquo;t understand. It might argue I couldn&rsquo;t
+have consciousness because I didn&rsquo;t have a coin slot. 
 </p>
 <p>That was when I
 decided there wasn&rsquo;t much difference between humans and

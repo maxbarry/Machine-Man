@@ -39,10 +39,11 @@ tiny bit concerned that her battery has been drained to a point where
 it&rsquo;s impacting heart function. And please don&rsquo;t worry,
 because it needs very little charge to pump blood&mdash;it&rsquo;s
 not going to stop! I&rsquo;m almost certain of that. But I am
-thinking that if the safety mechanism isn&rsquo;t working, and her
+thinking that if the safety mechanism isn&rsquo;t working and her
 heart rate reaches the trigger threshold, then possibly the EMP will
-fire for a third time. And that would be bad. So, again, this is just
-a precaution, and I don&rsquo;t want to make life harder because I
-know you have a lot on your plate, but when you find Lola, it would
-be extremely good if you avoid making her scared or excited or engage
-in any kind of vigorous exercise.&rdquo;</p>
+fire for a third time, which would... well, the battery doesn&rsquo;t
+have the capacity to support that. So, again, this is just a
+precaution, and I don&rsquo;t want to make life harder, because I
+know you have a lot on your plate already, but when you find Lola, it
+would be extremely good to avoid making her scared or excited or
+engage in any kind of vigorous exercise.&rdquo;</p>
