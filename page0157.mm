@@ -33,23 +33,24 @@ resources at my disposal.
 use it to track Carl. I&rsquo;m going to activate that right now,
 okay? You&rsquo;ll feel a distinct cold sensation, like a cool draft,
 from his direction.&rdquo;</p>
-<p>I had been trying
-to talk to my parts. It wasn&rsquo;t easy, given all the emotion
-crashing around. It was like trying to whisper in a thunderstorm. And
-I hadn&rsquo;t got any response. But something had been there in the
-original Contours. I thought something was probably here, too.</p>
+<p>So I had been
+trying to talk to my parts. It wasn&rsquo;t easy, given all the
+emotion crashing around. It was like trying to whisper in a
+thunderstorm. I hadn&rsquo;t heard any response. But something had
+been there in the original Contours. I thought something was probably
+here, too.</p>
 <p>&ldquo;Okay, the
 weapon. Well, you&rsquo;ve clearly figured out how to fire it. But,
-for reference, the mental command is to clench your fist. We&rsquo;ve
-loaded it up but we&rsquo;re not going to unlock it until you&rsquo;re
+for reference, the mental command is to clench your fist, hard. We&rsquo;ve
+loaded it up, but we&rsquo;re not going to unlock it until you&rsquo;re
 clear of the building, if that&rsquo;s okay. To, uh, be safe.&rdquo;</p>
-<p>A thought occurred
-to me. Instead of calling to my parts one at a time, I imagined them
-as a single entity. I thought: <em>Hello?</em></p>
+<p>An idea occurred to
+me. Instead of calling to my parts one at a time, I imagined them as
+a single entity. I thought: <em>Hello?</em></p>
 <p>Something stirred.</p>
 <p>&ldquo;Well!&rdquo;
 Jason looked around. &ldquo;I think we&rsquo;re about done. Are you
 ready to do this?&rdquo;</p>
 <p>I
-thought: <em>Are you?</em> My
+asked: <em>Are you?</em> My
 parts said: <em>Yes</em>.</p>
