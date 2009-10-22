@@ -1,6 +1,6 @@
 <p>Page 157.</p>
 <p>I felt hungry. I
-felt nauseus. I felt euphoric then furious and none of this had
+felt nauseous. I felt euphoric then furious and none of this had
 anything to do with me. That was what I realized. At first I tried to
 sort the real emotions from the chemically stimulated ones; then I
 saw it didn&rsquo;t matter. Maybe I felt rage because Carl had taken
