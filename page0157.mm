@@ -14,11 +14,11 @@ obsolete.</p>
 said Jason. &ldquo;Okay, Dr. Neumann, this is going to feel a little
 weird.&rdquo;</p>
 <p>Even the higher
-emotions, like frustration and joy and desire, weren&rsquo;t they
-just neurochemicals your body manufactured in order to encourage you
-to do what it wanted? I was not my body. I had never believed that.
-So, in that sense, there were no real feelings. They were all
-external and equally irrelevant.</p>
+emotions, like joy and desire, weren&rsquo;t they just neurochemicals
+your body manufactured in order to encourage you to do things that
+would benefit it? To survive, find a mate, procreate? I was not my
+body. I had never believed that. In that sense, then, there were no
+real feelings. They were all external and equally irrelevant.</p>
 <p>&ldquo;The hub
 allows us to maintain contact with you. There&rsquo;s a little camera
 right here, in your chest, so we can see what&rsquo;s going on. This
