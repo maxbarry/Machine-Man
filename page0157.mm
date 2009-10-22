@@ -6,7 +6,7 @@ sort the real emotions from the chemically stimulated ones; then I
 saw it didn&rsquo;t matter. Maybe I felt rage because Carl had taken
 Lola, or maybe it was a side-effect of something I&rsquo;d been
 injected with, or random feedback from the nerve interface&mdash;whatever
-the source, what I was feeling was a neurochemical reaction. That was
+the source, what I was feeling were neurochemical reactions. That was
 what emotions were. And I no longer needed my body to tell me to rest
 or eat or cool down: I had onboard systems for that. My emotions were
 obsolete.</p>
@@ -16,8 +16,8 @@ weird.&rdquo;</p>
 <p>Even the higher
 emotions, like frustration and joy and desire, weren&rsquo;t they
 just neurochemicals your body manufactured in order to encourage you
-to do what it wanted? And I was not my body. I had never believed
-that. So, in that sense, there were no real feelings. They were all
+to do what it wanted? I was not my body. I had never believed that.
+So, in that sense, there were no real feelings. They were all
 external and equally irrelevant.</p>
 <p>&ldquo;The hub
 allows us to maintain contact with you. There&rsquo;s a little camera
