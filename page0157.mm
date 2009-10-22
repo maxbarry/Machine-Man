@@ -31,8 +31,8 @@ resources at my disposal.
 </p>
 <p>&ldquo;You can also
 use it to track Carl. I&rsquo;m going to activate that right now,
-okay? You&rsquo;ll feel a distinct cold sensation, like a cool draft,
-from his direction.&rdquo;</p>
+okay? You&rsquo;ll feel a distinct cold sensation on your wrist, like
+a cool draft, from his direction.&rdquo;</p>
 <p>So I had been
 trying to talk to my parts. It wasn&rsquo;t easy, given all the
 emotion crashing around. It was like trying to whisper in a
