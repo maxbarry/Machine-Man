@@ -166,7 +166,7 @@ down,&rdquo; Jason said. &ldquo;That&rsquo;s way too high.&rdquo;</p>
 <p>The nausea faded.
 Sweat dripped down my face. I strained, desperate to throw up.</p>
 <p>&ldquo;Sorry. What
-we&rsquo;ve just connected you to is the 
+we&rsquo;ve connected you to is the 
 </p>
 <p></p>
 <p></p>
