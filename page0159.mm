@@ -237,5 +237,91 @@ how you talk to us. This is how you track Carl. &gt;&gt;</p>
 online: he feels them. &gt;&gt;</p>
 <p></p>
 <p></p>
+<p></p>
+<p>It seemed to me
+that she had wilfully missed the point. The question wasn&rsquo;t
+whether people had free will. I had no idea. 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>and she began
+explaining various theories of free will. But that was missing the
+point. It was like everything they talked about in Humanities:
+semantics, games with labels. 
+</p>
+<p></p>
+<p>I just thought we
+had a lot in common with vending machines.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>explain to an
+objective, independent observor that I was the independent variable
+making choices of my own free will in this situation, 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p>If an alien visitor
+was watching, I decided, it would not be easy to convince</p>
+<p></p>
+<p>&lt;&lt; But then
+&gt;&gt; &lt;&lt;As I stared at the dangling Doritos packet, &gt;&gt;
+a different way of looking at the situation occurred to me. In this
+scenario, the vending machine was intelligent and I was a machine.
+The vending machine, for reasons of its own&mdash;I don&rsquo;t think
+it&rsquo;s important to know the vending machine&rsquo;s motivation,
+but say it was bored&mdash;poked my buttons in order to elicit
+particular behaviors. This scenario made sense because if you
+replaced me with a different human being they would have acted the
+same way. There was nothing unique or unpredictable about me getting
+mad; an intelligent vending machine would know that&rsquo;s what
+humans do when you dangle snacks in front of them.</p>
+<p><A NAME="firstHeading1"></A>I
+spent the rest of the day trying to think why an objective observor
+should believe I was controlling the vending machine in this
+situation and not the other way around. And I couldn&rsquo;t. I had a
+brain and the vending machine didn&rsquo;t, but that was classic
+anthropocentrism: for all I
+knew, the vending machine&rsquo;s consciousness resided in a space I
+didn&rsquo;t understand. It might argue I couldn&rsquo;t have
+consciousness because I didn&rsquo;t have a coin slot. 
+</p>
+<p>That was when I
+decided there wasn&rsquo;t much difference between humans and
+machines. We&rsquo;re more complex, of course, but it&rsquo;s a
+distinction of degrees, not difference. We&rsquo;re all vending
+machines.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p>everyone likes to
+believe they are unique, thinking and acting in ways no-one else has
+before, 
+</p>
+<p></p>
+<p></p>
+<p></p>
+<p>back in my room and
+hungry, something about that encounter stuck with me. It&rsquo;s
+always humiliating to be defeated by an inanimate object, of course,
+especially one designed to do what you want, but what bothered me was
+my own behavior. The way I had acted was almost stereotypical.</p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
+<p></p>
 </BODY>
 </HTML>
