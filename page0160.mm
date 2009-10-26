@@ -30,5 +30,8 @@ off a jacket, attach a tether... no, wait...&rdquo;</p>
 I said, because watching the brightest minds in Better Future stumped
 by clothing was a little too much to bear. &ldquo;I&rsquo;m okay.&rdquo;</p>
 <p></p>
+<p>&lt;&lt; I don&rsquo;t
+think he can be naked... give the man some fucking clothes somehow.
+&gt;&gt;</p>
 <p></p>
 <p></p>
