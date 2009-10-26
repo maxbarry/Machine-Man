@@ -2,17 +2,17 @@
 <h5>CHAPTER 
 THIRTY-THREE</h5>
 <p>I clomped through
-the Better Future corridors escorted by a group of guards, doctors,
-and lab techs. Sometimes we passed other guards, doctors, and lab
-techs, who stopped what they were doing to stare at me. From their
-expressions, I was either an awe-inspiring technological miracle or
-the worst thing they had ever seen. I wasn&rsquo;t sure myself. As we
-filed down the stairs, though, the Contour Three hooves cantilevered
-on each step, and I had to admire that. There is something deeply
-satisfying about a mechanical system that works just like it&rsquo;s
-supposed to. I&rsquo;m not sure if everyone feels that way. It might
-be an engineering thing. But by the time we reached the bottom of
-those stairs, I was kind of in love.</p>
+the Better Future corridors escorted by security guards, doctors, and
+lab techs. Sometimes we passed other security guards, doctors, and
+lab techs, who stopped what they were doing to stare at me. From
+their expressions, I was either an awe-inspiring technological
+miracle or the worst thing they had ever seen. I wasn&rsquo;t sure
+myself. As we filed down the stairs, though, the Contour Three hooves
+cantilevered on each step, and I had to admire that. There is
+something deeply satisfying about a mechanical system that works just
+like it&rsquo;s supposed to. I&rsquo;m not sure if everyone feels
+that way. It might be an engineering thing. But by the time we
+reached the bottom of those stairs, I was kind of in love.</p>
 <p>Then we emerged
 into a corridor with a guy who might or might not have been trying to
 hide his revulsion. I stopped in front of him. Hands pulled at me,
