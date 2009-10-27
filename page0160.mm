@@ -15,7 +15,7 @@ chrome reflecting like supernovas, tailpipes belching fumes. &ldquo;Hold
 here a second, please,&rdquo; said Jason, and people swarmed me,
 performing final checks. Someone wrapped me in a top, a security
 guard jacket with one arm cut off.</p>
-<p>My legs hiccupped
+<p>My legs hiccuped
 forward. &ldquo;Only another minute,&rdquo; said Jason. He thought it
 was me. It wasn&rsquo;t. I could feel my legs&rsquo; impatience. Soon
 they were going to start running whether these people were ready or

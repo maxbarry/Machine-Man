@@ -1,27 +1,33 @@
 <p>Page 161.</p>
 <p>I followed a Better
 Future van up the ramp. It moved slowly, as if afraid of leaving me
-behind, so must have been driven by someone who had no idea what I
-was. More vehicles followed behind. This was their plan to protect me
-from observation: surround me with cars. I was okay with that. I just
-wished they would drive faster. The Contour Threes were essentially
-ambulating, one hoof remaining in contact with the ground all times,
-and I felt bad for them, like they were being insulted.</p>
+behind, so I guess was driven by someone who had no idea what I was.
+More vehicles followed me. This was their plan to hide me from the
+cops and fire fighters: surround me with cars. I was okay with that.
+I just wished they would drive faster. The Contour Threes were
+essentially ambulating, one hoof always remaining in contact with the
+ground. I felt impatient and vaguely insulted.</p>
 <p>&ldquo;Dr. Neumann?
 This is Jason. Can you hear me?&rdquo;</p>
-<p>I glanced down. I
+<p>I looked down. I
 had a speaker near my liver, apparently. Actually, I had a speaker
 where I used to have a liver. &ldquo;Yes.&rdquo;</p>
 <p>&ldquo;We&rsquo;re
 almost at the top. Are you ready for some acceleration?&rdquo;</p>
 <p>&ldquo;Yes,&rdquo;
-I said. &ldquo;Yes yes.&rdquo;</p>
+I said. &ldquo;Yes.&rdquo;</p>
 <p>The van ahead
-sprung forward. I didn&rsquo;t need to say anything to the Contours:
-they accelerated by themselves, quickly catching up. Behind me, I
-heard the Hummers&rsquo; engines roaring. A rectangle of light rushed
-toward me, and then we were outside. The cars behind moved up to
-flank me, and 
+sprung forward. Before I could think to instruct the Contours, they
+broke into a run by themselves. 
+</p>
+<p></p>
+<p>My gait was steady</p>
+<p></p>
+<p>I didn&rsquo;t need
+to say anything to the Contours: they accelerated by themselves,
+quickly catching up. Behind me, I heard the Hummers&rsquo; engines
+roaring. A rectangle of light rushed toward me, and then we were
+outside. The cars behind moved up to flank me, and 
 </p>
 <p></p>
 <p>The air sang. 
