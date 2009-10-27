@@ -1,9 +1,6 @@
-<p>Page 159.</p>
+<p>Page 161.</p>
 <p>&lt;&lt; Car escort
 out of the parking lot: he runs. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
 <p></p>
 <p></p>
 <p></p>
@@ -27,14 +24,7 @@ reek of smoke.</p>
 <p></p>
 <p></p>
 <p></p>
-<p>&ldquo;I feel like
-the old woman who swallowed a fly,&rdquo; she said. &ldquo;She
-swallowed a spider to catch the fly, she swallowed a bird to catch
-the spider...&rdquo; Her face contorted. She reached for my face. I
-was not very sure about this, but it was a little late to stop
-trusting Cassandra Cautery, so I bent down. She placed her hands on
-the back of my head, stretched up on tip-toes, and kissed me on the
-cheek. &ldquo;Be careful,&rdquo; she whispered. &ldquo;Please.&rdquo;</p>
+<p></p>
 <p></p>
 <p></p>
 <p></p>
