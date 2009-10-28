@@ -1,144 +1,48 @@
 <p>Page 161.</p>
 <p>I followed a Better
 Future van up the ramp. It moved slowly, as if afraid of leaving me
-behind, so I guess was driven by someone who had no idea what I was.
-More vehicles followed me. This was their plan to hide me from the
-cops and fire fighters: surround me with cars. I was okay with that.
-I just wished they would drive faster. The Contour Threes were
-essentially ambulating, one hoof always remaining in contact with the
-ground. I felt impatient and vaguely insulted.</p>
+behind, and I felt insulted. Didn&rsquo;t they know what I was? <em>Kick
+it</em>, said the Contours, or a sentiment to that effect, and I
+smiled, because I understood their frustration.</p>
 <p>&ldquo;Dr. Neumann?
 This is Jason. Can you hear me?&rdquo;</p>
 <p>I looked down. I
-had a speaker near my liver, apparently. Actually, I had a speaker
-where I used to have a liver. &ldquo;Yes.&rdquo;</p>
+had a speaker near my liver. Actually, I had a speaker where I used
+to have a liver. &ldquo;Yes.&rdquo;</p>
 <p>&ldquo;We&rsquo;re
 almost at the top. Are you ready for some acceleration?&rdquo;</p>
 <p>&ldquo;Yes,&rdquo;
 I said. &ldquo;Yes.&rdquo;</p>
-<p>The van ahead
-sprung forward. Before I could think to instruct the Contours, they
-broke into a run by themselves. 
+<p>The van sprang
+ahead. I didn&rsquo;t need to instruct the Contours: they shifted
+into an easy lope all by themselves. It was far smoother to the first
+time I&rsquo;d ridden out on artificial legs, which had felt as if
+they were trying to shake every bone in my body out through the top
+of my head; maybe because of some improvements to gait and balance,
+or maybe because I had fewer bones. I no longer felt as if I was
+risking serious neck damage with each step. 
 </p>
-<p></p>
-<p>My gait was steady</p>
-<p></p>
-<p>I didn&rsquo;t need
-to say anything to the Contours: they accelerated by themselves,
-quickly catching up. Behind me, I heard the Hummers&rsquo; engines
-roaring. A rectangle of light rushed toward me, and then we were
-outside. The cars behind moved up to flank me, and 
-</p>
-<p></p>
-<p>The air sang. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>That was the plan
-to protect me from observation: surround me with cars. 
-</p>
-<p>There were two on
-the ramp ahead of me</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>ran up the ramp
-behind a Better Future van. 
-</p>
-<p></p>
-<p></p>
-<p>This was the plan
-to protect me from observation with a cordon of Better Future vans
-and Hummers. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>moving in perfect
-balance, and the feeling, it was like pure joy.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I moved. 
-</p>
-<p></p>
-<p></p>
-<p>&ldquo;I feel like
-the old woman who swallowed a fly. You know that one? <em>She
-swallowed a spider to catch the fly... she swallowed a bird to catch
-the spider</em>...&rdquo; 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Car escort
-out of the parking lot: he runs. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>Then we reached the
-lobby, although it was a moment before I realized this, because last
-time I had been here the walls were not scorched black and spattered
-with bullet holes, and there was glass in the front, and it did not
-reek of smoke.</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>TUE: Running. I was
-a Lola-Rescuing machine. He gets happy. He gets in tune. A
-Carl-killing machine. The quips come back.</p>
-<p></p>
-<p></p>
-<p></p>
-<p><em>I am a Lola-rescuing machine</em>,
-I thought, and my parts said: <em>I am a Lola-rescuing machine</em>.
-I smiled, because if that wasn&rsquo;t an echo, it was quite clever. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&ldquo;Well. Good
-luck. Anything else?&rdquo;</p>
-<p>&ldquo;I have to
-pee.&rdquo;</p>
-<p>&ldquo;That&rsquo;s...
-I don&rsquo;t know what that is,&rdquo; said Jason. &ldquo;But you
-can&rsquo;t pee, so it should be safe to go ahead and feel like
-you&rsquo;re doing that.&rdquo;</p>
-<p></p>
-<p></p>
-<p></p>
+<p>&ldquo;The other
+cars are going to pull alongside you,&rdquo; said the speaker. &ldquo;The
+idea here is they&rsquo;ll form a cordon, to cover you from emergency
+services.&rdquo;</p>
+<p>A rectangle of
+light rushed toward me. As the ramp broadened, a Hummer moved up on
+each side. Then suddenly we were outside. Fresh air slapped me in the
+face. Red and blue light flashed around me, but I could see little
+beyond the cars surrounding me, which of course was the general idea.
+We turned onto the road. I got a little too close to the Hummer on
+the left; my gun-arm brushed against it and its tires squealed.</p>
+<p><em>That was deliberate</em>,
+I said. <em>Wasn&rsquo;t it?</em>
+Because I had written some of this software: collision avoidance was
+not that hard. My parts were silent, but I could feel their
+satisfaction. <em>Okay</em>, I
+said. <em>Okay, then</em>.</p>
+<p>I
+veered left. My arm touched the side of the Hummer and I pushed. It
+tried to resist; white smoke streamed from its tires. My
+Jason-speaker barked unintelligably. I nudged the Hummer again and it
+hopped and spun in a half-circle. I accelerated through the gap it
+left, and then I was running, wind blasting past me, and the feeling,
+it was like pure joy.</p>
