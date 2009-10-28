@@ -11,38 +11,35 @@ had a speaker near my liver. Actually, I had a speaker where I used
 to have a liver. &ldquo;Yes.&rdquo;</p>
 <p>&ldquo;We&rsquo;re
 almost at the top. Are you ready for some acceleration?&rdquo;</p>
-<p>&ldquo;Yes,&rdquo;
-I said. &ldquo;Yes.&rdquo;</p>
+<p>&ldquo;Yes. Yes.&rdquo;</p>
 <p>The van sprang
 ahead. I didn&rsquo;t need to instruct the Contours: they shifted
-into an easy lope all by themselves. It was far smoother to the first
-time I&rsquo;d ridden out on artificial legs, which had felt as if
+into a lope all by themselves. It was a world away from the first
+time I&rsquo;d ridden out on artificial legs, when I had felt as if
 they were trying to shake every bone in my body out through the top
-of my head; maybe because of some improvements to gait and balance,
-or maybe because I had fewer bones. I no longer felt as if I was
+of my head; improvements to the model, I guessed, plus the fact that
+I had fewer bones. It was a relief to no longer feel as if I was
 risking serious neck damage with each step. 
 </p>
 <p>&ldquo;The other
-cars are going to pull alongside you,&rdquo; said the speaker. &ldquo;The
-idea here is they&rsquo;ll form a cordon, to cover you from emergency
-services.&rdquo;</p>
+cars will pull alongside you. They&rsquo;ll form a cordon to try to
+cover you from emergency services.&rdquo;</p>
 <p>A rectangle of
-light rushed toward me. As the ramp broadened, a Hummer moved up on
-each side. Then suddenly we were outside. Fresh air slapped me in the
-face. Red and blue light flashed around me, but I could see little
-beyond the cars surrounding me, which of course was the general idea.
-We turned onto the road. I got a little too close to the Hummer on
-the left; my gun-arm brushed against it and its tires squealed.</p>
+light rushed toward me. As the ramp broadened, a Hummer roared up on
+each side. Then we were outside, and fresh air slapped me in the
+face. We turned onto the road and I got a little too close to the
+Hummer on the left; my gun-arm brushed against it, its tires
+squealed.</p>
 <p><em>That was deliberate</em>,
 I said. <em>Wasn&rsquo;t it?</em>
 Because I had written some of this software: collision avoidance was
-not that hard. My parts were silent, but I could feel their
+not that hard. My parts were silent. But I could feel their
 satisfaction. <em>Okay</em>, I
 said. <em>Okay, then</em>.</p>
 <p>I veered left. My
-arm touched the side of the Hummer and I pushed. It tried to resist;
-white smoke streamed from its tires. My Jason-speaker barked
-unintelligably. I nudged the Hummer again and it hopped and spun in a
-half-circle. I accelerated through the gap it left, and then I was
-running, wind blasting past me, and the feeling, it was like pure
-joy.</p>
+gun-arm touched the side of the Hummer. I pushed, gentle but firm. It
+tried to resist; white smoke streamed from its tires. My
+Jason-speaker barked unintelligably. I pushed the Hummer again,
+harder, until it popped out of formation and spun in a smoking
+half-circle. Then I accelerated through the gap and was running, wind
+blasting past me, and that feeling, it was pure joy.</p>
