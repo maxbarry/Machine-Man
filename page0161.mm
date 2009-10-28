@@ -3,7 +3,7 @@
 Future van up the ramp. It moved slowly, as if afraid of leaving me
 behind, and I felt insulted. Didn&rsquo;t they know what I was? <em>Kick
 it</em>, said the Contours, or a sentiment to that effect, and I
-smiled, because I understood their frustration.</p>
+didn&rsquo;t, but I sympathized with their frustration.</p>
 <p>&ldquo;Dr. Neumann?
 This is Jason. Can you hear me?&rdquo;</p>
 <p>I looked down. I
@@ -39,10 +39,10 @@ Because I had written some of this software: collision avoidance was
 not that hard. My parts were silent, but I could feel their
 satisfaction. <em>Okay</em>, I
 said. <em>Okay, then</em>.</p>
-<p>I
-veered left. My arm touched the side of the Hummer and I pushed. It
-tried to resist; white smoke streamed from its tires. My
-Jason-speaker barked unintelligably. I nudged the Hummer again and it
-hopped and spun in a half-circle. I accelerated through the gap it
-left, and then I was running, wind blasting past me, and the feeling,
-it was like pure joy.</p>
+<p>I veered left. My
+arm touched the side of the Hummer and I pushed. It tried to resist;
+white smoke streamed from its tires. My Jason-speaker barked
+unintelligably. I nudged the Hummer again and it hopped and spun in a
+half-circle. I accelerated through the gap it left, and then I was
+running, wind blasting past me, and the feeling, it was like pure
+joy.</p>
