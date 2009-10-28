@@ -39,7 +39,7 @@ said. <em>Okay, then</em>.</p>
 <p>I veered left. My
 gun-arm touched the side of the Hummer. I pushed, gentle but firm. It
 tried to resist; white smoke streamed from its tires. My
-Jason-speaker barked unintelligably. I pushed the Hummer again,
+Jason-speaker barked unintelligibly. I pushed the Hummer again,
 harder, until it popped out of formation and spun in a smoking
 half-circle. Then I accelerated through the gap and was running, wind
 blasting past me, and that feeling, it was pure joy.</p>
