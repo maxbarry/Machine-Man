@@ -17,10 +17,10 @@ never feel this peaceful again, not without chemical assistance. I
 had to savor it.</p>
 <p>Something
 was slooshing. It sounded soothing. Something else went: <em>Sssssss</em>,
-like an old man easing into a favorite chair. I felt wet. I felt
-safe. I was in the womb. The only thing that threatened to spoil this
-was the smoke, which was becoming quite thick. But I could ignore
-that. I closed my eyes.</p>
+like an old man easing into a
+favorite chair. I felt wet. I felt safe. I was in the womb. The only
+thing that threatened to spoil this was the smoke, which was becoming
+quite thick. But I could ignore that. I closed my eyes.</p>
 <p>Someone
 coughed. I opened my eyes, because that was a disconcerting sound to
 hear in a womb. Especially this cough, which sounded weak and wet. I
