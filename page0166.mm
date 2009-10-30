@@ -2,82 +2,32 @@
 <p>(WED)</p>
 <p></p>
 <p>Carl punched me in
-the guts and I staggered backward and sat down on the hood of a car.
-The surprising thing about this was the lack of force. It was more
-like I saw the blow coming and tried to ride what I expected to be a
-massive transfer of momentum. But it wasn&rsquo;t, and I realized
-something: compared to me, Carl&rsquo;s arms were not very strong. Of
-course they weren&rsquo;t: he had biological legs. Even allowing for
-some hidden bracing beneath his uniform, there was no way he was
-carrying around half-ton arms. They would do some damage if I let
-them near my soft parts. But he couldn&rsquo;t pick me up and throw
-me around. He could barely push me.</p>
-<p></p>
-<p></p>
-<p>They were
-lightweight. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>I swung my gun-arm
-in a long, slow loop, aimed at Carl&rsquo;s head. It was ridiculous:
-I already knew he was too close. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt;
-If we see Lola is okay, we LOSE THE RAGE. MUST NOT SEE THAT LOLA IS
-OKAY. &gt;&gt;</p>
-<p></p>
-<p>&lt;&lt;
-The thing is, Carl shouldn&rsquo;t know he&rsquo;s being tracked&mdash;at
-least, not by Charlie. He should expect BF to come after him&mdash;that&rsquo;s
-why he&rsquo;s trying to dig out the locator&mdash;but Charlie is a
-surprise. However, he has heard Charlie coming up the ramp. Charlie
-has called out. Lola has called back. Lola would think: &ldquo;I&rsquo;ll
-run to Charlie!&rdquo; Carl would say: &ldquo;Wait, it&rsquo;s not
-safe, think of his parts.&rdquo; &ldquo;We have to get this tracker
-off as fast as possible.&rdquo; &gt;&gt;</p>
-<p></p>
-<p></p>
+the stomach and I staggered backward and sat down on the hood of a
+car. Its windscreen imploded. The surprising thing about this was the
+lack of force. It was more like I saw the blow coming and tried to
+ride what I expected to be a massive transfer of momentum, but
+wasn&rsquo;t. I realized that compared to me, Carl&rsquo;s arms were
+not very strong. Of course they weren&rsquo;t: he had biological
+legs. Even allowing for hidden bracing beneath his uniform, there was
+no way he was carrying around half-ton arms. I didn&rsquo;t want to
+let them near my face. But he wasn&rsquo;t going to be able to pick
+me up. He could barely push me.</p>
+<p>I got off the car
+and swung my gun-arm. I was so late doing this that Carl not only had
+time to deflect it with his arm but first gave me a patronizing look.
+I tried to back up, to put enough distance between us to employ the
+useful part of my gun-arm, but he came after me, looking pained.
+&ldquo;Wait,&rdquo; he said. &ldquo;Calm down a second.&rdquo; My
+heels hit the car behind me and pushed it up the retaining wall. I
+tried to raise the gun-arm and again Carl knocked it aside. &ldquo;Listen
+to me.&rdquo;</p>
+<p><em>No</em>,
+I thought, or my parts did; it was hard to tell. My gun roared, and
+the air filled with concrete dust. I coughed and lost sight of Carl.
+I tried to back up and the car behind shrieked twisted metal and
+broken glass. I tried to kick it out of the way, flinging a hoof
+backwards, and all of a sudden there was much less resistance than I
+had anticipated. It wasn&rsquo;t until a little later that I realized
+I had kicked the car completely over the edge of the concrete
+retaining wall, and it was tumbling end-over-end to the alley below.
+At the time, all I knew I was falling.</p>
