@@ -6,9 +6,9 @@ it was. I was going to obliterate him. We both knew it. He was going
 to die in little pieces and I would weep beside them over whatever he
 had done to Lola&rsquo;s body.</p>
 <p>Then Carl flicked
-his forearm and an object hurtled toward my body. Even before I saw
-what it was, this was the moment I realized I had seriously misread
-the situation. Because it didn&rsquo;t matter if I was stronger than
+his forearm and an object hurtled toward me. Even before I saw what
+it was, this was the moment I realized I had seriously misread the
+situation. Because it didn&rsquo;t matter if I was stronger than
 Carl, faster and smarter and better armed, if he could surprise me by
 throwing things. The factor I had failed to consider was that I had
 never fought anyone in my whole life. I had almost hit a girl in
