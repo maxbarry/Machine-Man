@@ -14,20 +14,18 @@ throw me. He could barely push me.</p>
 <p>I got off the car
 and swung at him. I did this so slowly that Carl not only had time to
 deflect it with his arm but first give me a patronizing look. My rage
-blossomed. I backed up, trying to put enough distance between us to
-use my gun-arm to insert a lot more metal into Carl than he already
-had. My heels hit the same car again, and it screamed, metal on
-concrete, folding up against the low retaining wall behind me. I
-raised my gun-arm. Carl knocked it aside again.</p>
-<p><em>No</em>,
-I thought, or my parts did; one or the other. I kept backing up, the
-car behind me popping glass and cracking metal, and suddenly there
-was a lot less resistance than there had been. I staggered backward.
-A gap opened between me and Carl and I squeezed fury through my arm.
-As my gun-arm roared, Carl ducked and punched it upward. Chunks of
-ceiling rained around me. The air filled with dense, choking dust. I
-was still walking backward, flailing and off-balance, and I
-discovered the reason that the car was no longer holding me up was
-that I had pushed it completely over the retaining wall, sending it
-tumbling end-over-end to the alley below, and the way I discovered
-this was that all of a sudden so was I.</p>
+blossomed. I backed up, trying to put enough distance between us so I
+could use my gun-arm to insert a lot more metal into Carl than he
+already had. My heels hit the same car again, and it screamed, metal
+on concrete, folding up against the low retaining wall behind me. I
+raised my arm and Carl knocked it aside again. The car behind me
+popped and banged and suddenly there was less resistance than there
+had been. I staggered backward. A gap opened up between me and Carl
+and I squeezed fury through my arm. For an instant I thought I had
+him, then he stepped inside my reach and punched my arm upward.
+Chunks of ceiling rained down on me. The air filled with dense,
+choking dust. I was still staggering, trying to find solid ground
+behind me, and I discovered the reason the car was no longer pushing
+back on me was that I had forced it completely over the retaining
+wall, sending it tumbling end-over-end to the alley below, and the
+way I discovered this was all of a sudden so was I.</p>
