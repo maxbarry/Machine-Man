@@ -17,5 +17,5 @@ me. He peered out from the parking garage, surrounded by so much
 swirling concrete dust that I could barely see him. Which meant he
 could barely see me. He was hanging himself out there, thinking I
 must be sprawled dead or broken. <em>Now</em>, said my parts, and I
-said; <em>Yes yes yes</em>. We got the gun-arm up, my parts and I, and
+said: <em>Yes yes yes</em>. We got the gun-arm up, my parts and I, and
 we bellowed gunfire until we couldn&rsquo;t see the garage any more.</p>

@@ -23,22 +23,21 @@ make sure.</em></p>
 <p>We moved through
 clouds of dust. &ldquo;Carl?&rdquo; We stopped, my bearings
 momentarily lost. &ldquo;Where are you, Carl?&rdquo;</p>
-<p>Then I saw his legs
-poking out from behind the elevator block. We circled around, keeping
-our distance, because there were to be no last-minute tricks from
-Carl. He would not brain us with a chunk of concrete as we rushed
-around the corner. He would not open one metal hand to reveal any
-kind of explosive device he had swiped from Better Future. The way
+<p>His legs were
+poking out from behind the elevator block. My parts and I circled
+around, keeping our distance, because there were to be no last-minute
+tricks from Carl. He would not brain us with a chunk of concrete as
+we rushed around the corner. He would not open one metal hand to
+reveal an explosive device he had swiped from Better Future. The way
 this was going to work was we would maintain a safe distance from
 Carl at all times. We would tell him a few things about Lola. And we
 would shoot him.</p>
 <p>We stepped around a
-concrete pillar. Carl didn&rsquo;t look right. It was just like the
-moment I&rsquo;d first spotted him in this parking garage: he was
-there, but I couldn&rsquo;t figure out his posture. <em>Shoot</em>,
-said the parts, <em>Now. Shoot</em>, and the gun-arm whirred like a
-suggestion.</p>
+concrete pillar. Carl didn&rsquo;t look right. It was the same as the
+moment I&rsquo;d first spotted him in this parking garage: I couldn&rsquo;t
+figure out his posture. <em>Shoot</em>, said the parts, <em>Now. Shoot.</em>
+The gun-arm whirred like a suggestion.</p>
 <p>The section of
 Carl&rsquo;s body that didn&rsquo;t make sense turned. It was Lola.
-She was kneeling beside him. She seemed to be crying. &ldquo;Stop,&rdquo;
-she said. &ldquo;Please, Charlie, stop.&rdquo;</p>
+She seemed to be crying. &ldquo;Stop,&rdquo; she said. &ldquo;Please,
+Charlie, stop.&rdquo;</p>
