@@ -25,8 +25,8 @@ think, Charlie, is that these parts you made, they&rsquo;re too easy
 for your brain. You told me once that you don&rsquo;t need to think
 about where you step: you tell your Contours where you want to go and
 they figure out how to get you there. That&rsquo;s clever, Charlie,
-that&rsquo;s the kind of thing you do, but I think you put a couple
-million neurons out of work.</p>
+that&rsquo;s the kind of thing you do, but I think you put a lot of
+neurons out of work.</p>
 <p>&ldquo;And they&rsquo;ve
 gone all over. Some, maybe most, went into your subconscious and
 super-charged it. They raised up areas of your brain that should stay
