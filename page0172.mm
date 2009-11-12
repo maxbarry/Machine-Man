@@ -10,18 +10,18 @@ stopped them. Or stopped myself, if what Lola said about free-roaming
 neurons in the subconscious was true. I wasn&rsquo;t sure about that
 theory. It sounded plausible. It sounded a lot more plausible than
 the idea of my titanium parts spontaneously developing consciousness
-all on their own. But it did not feel plausible. Because that would
-mean that there was no other entity here: that I was alone in this
-body, talking to myself, and that was too horrible to contemplate.</p>
+on their own. But it did not feel plausible. Because that would mean
+that there was no other entity here: that I was alone in this body,
+talking to myself.</p>
 <p>&ldquo;Over time,
 Charlie, we can re-train your brain. With the right physical therapy,
 your neurons will move elsewhere. We can replace these parts with
 more standard prosthetics that&mdash;&rdquo;</p>
 <p>&ldquo;Let me stop
-you there.&rdquo; I tried to keep my voice from shaking, but it
-didn&rsquo;t work. &ldquo;I know you have my best interests in mind,
-Lola, but I&rsquo;m not sure you really appreciate the fact that at
-this point I am essentially a <em>head</em>.&rdquo;</p>
+you there.&rdquo; I tried to keep my voice from shaking. &ldquo;I
+know you have my best interests in mind, Lola, but I&rsquo;m not sure
+you really appreciate the fact that at this point I am essentially a
+<em>head</em>.&rdquo;</p>
 <p>&ldquo;Charlie&mdash;&rdquo;</p>
 <p>&ldquo;There is no
 <em>getting rid of the parts</em>. I <em>am</em> the parts. Look at me.
@@ -43,8 +43,8 @@ changed,&rdquo; she said. &ldquo;You used to be thoughtful. Now you
 walk around with a gun.&rdquo;</p>
 <p>&ldquo;There&rsquo;s
 nothing wrong with the gun. Don&rsquo;t insult the gun.&rdquo;</p>
-<p>&ldquo;You&rsquo;ve
-changed everything. Not only your body. You changed <em>you</em>.&rdquo;</p>
+<p>&ldquo;You didn&rsquo;t
+just change your body. You&rsquo;ve changed <em>you</em>.&rdquo;</p>
 <p>&ldquo;Changed.
 Improved.&rdquo; Words spilled out of me, tripping over each other.
 &ldquo;The thing is, Lola, the person I used to be, nobody liked him.
@@ -55,41 +55,41 @@ been a little personality rewiring here, but is that such a bad
 thing? Isn&rsquo;t that just self-improvement? Because I think I&rsquo;m
 better now, Lola. I do. Yes, I&rsquo;m a little jittery, and the
 parts are talking all the time, but that&rsquo;s okay. I can live
-with that. To be perfectly honest, it&rsquo;s nice to have a little
-company. And nothing works perfectly the first time. You don&rsquo;t
-scrap the whole project every time there&rsquo;s a hitch. You keep
-what you&rsquo;ve got and look for iterative improvement. The point
-is, on balance, isn&rsquo;t this a step forward?&rdquo; I could see
-from Lola&rsquo;s expression that she was finding none of this
+with that. To be honest, it&rsquo;s not that bad to have a little
+company for once. And nothing works perfectly the first time. You
+don&rsquo;t scrap the whole project every time there&rsquo;s a hitch.
+You keep what you&rsquo;ve got and look for iterative improvement.
+The point is, on balance, isn&rsquo;t this a step forward?&rdquo; I
+could see from Lola&rsquo;s expression that none of this was very
 persuasive. &ldquo;Okay, forget that. The fact is, I need the parts.
 To live. There&rsquo;s nothing I can do. My hands are tied.&rdquo;</p>
 <p>Lola&rsquo;s mouth
 opened. &ldquo;It&rsquo;s possible that&mdash;&rdquo;</p>
-<p>&ldquo;<em>Well I
-don&rsquo;t care!</em> Even if I could survive on some kind of shitty
-life support system in a hospital room somewhere, <em>I don&rsquo;t
-want to!</em> Do you know what this body can do? We have&mdash;we have
-inbuilt GPS, Lola! What are we supposed to do, go back to <em>maps</em>?&rdquo;
-I forced myself to calm. &ldquo;That&rsquo;s just an example. Because
+<p>&ldquo;<em>I don&rsquo;t
+care!</em> Even if I could survive on some kind of shitty life support
+system in a hospital room somewhere, <em>I don&rsquo;t want to!</em> Do
+you know what this body can do? We have&mdash;we have inbuilt GPS,
+Lola! What are we supposed to do, go back to <em>maps</em>?&rdquo; I
+forced myself to calm. &ldquo;That&rsquo;s just an example. Because
 what you&rsquo;re talking about, Lola, it&rsquo;s like asking me to
 move out of my apartment and go live in a cave. A cave in the
 <em>jungle</em>.&rdquo;</p>
 <p>&ldquo;Who&rsquo;s
 &lsquo;we?&rsquo;&rdquo;</p>
 <p>&ldquo;The parts
-and...&rdquo; I didn&rsquo;t finish this sentence. It would have been
-pointless. <em>Shoot</em>, said the parts; they had been saying this a
-while, increasingly insistent, like a drumbeat. My eyes moved to
-Carl. He was the source of this trouble. He had been since day one.
-Shooting him would solve everything, or maybe not, maybe the logic of
-that wasn&rsquo;t quite there, but the part of me that wanted to
-shoot didn&rsquo;t care so much about that. It just wanted him dead.
-And Lola: Lola would understand. Maybe not right away. But
-eventually. She would come around. Because let&rsquo;s not kid
-ourselves, Lola wasn&rsquo;t going to stick around for a <em>head</em>.
-I didn&rsquo;t care what she thought now, that was not going to make
-a successful long-term relationship. It was best for everyone if I
-shot Carl now shot him shot him dead.</p>
+and...&rdquo; I didn&rsquo;t finish this sentence. I had realized it
+was pointless. <em>Shoot</em>, said the parts; they had been saying
+this a while, increasingly insistent. My eyes moved to Carl. He was
+the source of this trouble. He had been since day one. Shooting him
+would solve everything, or maybe not, maybe the logic of that wasn&rsquo;t
+quite there, but the part of me that wanted to shoot didn&rsquo;t
+care so much about that. It just wanted him dead. And Lola: Lola
+would understand. Maybe not right away. But eventually. She would
+come around. Because let&rsquo;s not kid ourselves, Lola wasn&rsquo;t
+going to stick around for a head. I didn&rsquo;t care what she
+thought now, that was not a recipe for a successful long-term
+relationship. It was best for everyone if I shot Carl now shot him
+shot him dead.</p>
 <p>I brushed Lola
 aside. It was as easy as walking through a curtain. As I walked up to
 Carl, raising the gun-arm, my body flooded with joy, and I felt in my
