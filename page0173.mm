@@ -9,12 +9,12 @@ some big kids in elementary school used to take his lunch money.
 Something like that, which I didn&rsquo;t have patience for. &ldquo;I
 don&rsquo;t care.&rdquo;</p>
 <p>Carl said nothing.
-His eyes continued to glitter at me, as if he thought there was no
-need to say what was obvious to us both. I wanted to set him
-straight. &ldquo;The fact is, Carl, this is just Darwinism. My parts
-are better than yours. It&rsquo;s natural evolution.&rdquo; Well. Not
-natural. But Carl probably didn&rsquo;t know know what I was talking
-about anyway. He was a security guard. &ldquo;Shut up.&rdquo;</p>
+His eyes continued to glitter at me, like he thought there was no
+need to say what was obvious to us both. &ldquo;The fact is, Carl,
+this is just Darwinism. My parts are better than yours. It&rsquo;s
+natural evolution.&rdquo; Well. Not natural. But Carl probably didn&rsquo;t
+know know what I was talking about anyway. He was a security guard.
+&ldquo;Shut up.&rdquo;</p>
 <p>Still no reaction.
 It occurred to me that I hadn&rsquo;t heard Carl&rsquo;s breathing
 for a while. Now I thought about it, he&rsquo;d been silent ever
