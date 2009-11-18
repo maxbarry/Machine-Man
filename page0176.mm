@@ -32,7 +32,7 @@ you don&rsquo;t,&rdquo; said Cassandra Cautery. &ldquo;Who said you
 did?&rdquo; I looked at her, because we both knew she had been
 listening, and her face changed. &ldquo;Okay. Look. I don&rsquo;t
 want to talk trash about your girlfriend, Charlie, because she&rsquo;s
-been through a lot. Wee all have. But what she suggested to you a
+been through a lot. We all have. But what she suggested to you a
 minute ago, that&rsquo;s monstrous. That&rsquo;s the most horrible
 thing I&rsquo;ve ever heard. And I&rsquo;ve, well...&rdquo; A noise
 came out of her: not quite a laugh, but not anything else, either.
