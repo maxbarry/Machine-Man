@@ -48,11 +48,11 @@ put pressure on you, but we have to go. Now.&rdquo;</p>
 I thought: <em>Can I trust you?</em> A part of me said <em>yes</em> and a
 part said <em>no</em> and in the end it came down to which part I liked
 better. I didn&rsquo;t feel a closer affinity with one part. I didn&rsquo;t
-try to figure out which felt more like me. I had come to suspect
-there was no such thing as a core self: it was all malleable. I was
-more alert when I drank coffee, happier when I was on drugs, and,
-with a certain combination of missing limbs and free-roaming neurons,
-I could kill people. It was pointless to ponder who I was, because
-mostly I was neurochemicals. So instead I chose who I wanted to be
-next. And I liked the part that trusted Lola. I decided I would be
-that. &ldquo;Okay,&rdquo; I said.</p>
+try to figure out which felt more like me. I had come to suspect I
+had no core self: it was all malleable. I was more alert when I drank
+coffee, happier when I was on drugs, and, with a certain combination
+of missing limbs and free-roaming neurons, I could kill people. It
+was pointless to ponder who I was, because mostly I was
+neurochemicals. So instead I chose who I wanted to be next. And I
+liked the part that trusted Lola. I decided I would be that. &ldquo;Okay,&rdquo;
+I said.</p>
