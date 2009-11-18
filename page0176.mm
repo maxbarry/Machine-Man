@@ -36,7 +36,7 @@ been through a lot. We all have. But what she suggested to you a
 minute ago, that&rsquo;s monstrous. That&rsquo;s the most horrible
 thing I&rsquo;ve ever heard. And I&rsquo;ve, well...&rdquo; A noise
 came out of her: not quite a laugh, but not anything else, either.
-&ldquo;My honest opinion, Miss Banks has a few psychological issues
+&ldquo;My honest opinion, Lola Banks has a few psychological issues
 of her own.&rdquo;</p>
 <p>&ldquo;You&rsquo;re
 a twisted person,&rdquo; said Lola. &ldquo;You&rsquo;re really evil.&rdquo;</p>
