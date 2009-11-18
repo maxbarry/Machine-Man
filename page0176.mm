@@ -5,7 +5,7 @@ followed by three very cautious-looking Better Future security
 guards, who were not armed, as far as I could tell. Others hung back
 with the vehicle, shuffling and murmuring, clanking things I couldn&rsquo;t
 see.</p>
-<p>Cassandra Catuery
+<p>Cassandra Cautery
 stopped when she saw Carl. She did not seem particularly surprised,
 or sad, or anything else. But she looked at him for a long time. Then
 her eyes turned back to me, full of sympathy and understanding. &ldquo;Oh,
