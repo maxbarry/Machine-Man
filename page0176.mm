@@ -53,9 +53,8 @@ had no core self: it was all malleable. When I was a kid I felt
 scared a lot for no reason and then I got older and it just stopped,
 so which of them was me? I got happier when I drank coffee,
 bad-tempered when I was tired, and, with a certain combination of
-stress, missing limbs, and drugs, I could kill people. And what I
-thought was that maybe none of that said very much about me. It was
-pointless to ponder who I was, because mostly I was neurochemicals.
-So I didn&rsquo;t try. Instead, I chose who I wanted to be next. And
-I liked the part that trusted Lola. I decided I would be that.
-&ldquo;Okay,&rdquo; I said.</p>
+stress, missing limbs, and drugs, I could kill people. And maybe none
+of that said very much about me. Maybe it was pointless to ponder who
+I was, because mostly I was neurochemicals. So I didn&rsquo;t try.
+Instead, I chose who I wanted to be next. And I liked the part that
+trusted Lola. I decided I would be that. &ldquo;Okay,&rdquo; I said.</p>
