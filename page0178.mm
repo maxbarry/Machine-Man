@@ -1,8 +1,4 @@
 <p>Page 178.</p>
-<p>(FRI)</p>
-<p></p>
-<p></p>
-<p></p>
 <p>In my head, I
 stomped my hoof. I created a shock wave that rippled through the
 concrete and tossed Jason into the air. Cassandra Cautery fell to the
@@ -17,70 +13,18 @@ all behind. I ran so far Better Future&rsquo;s wireless control
 couldn&rsquo;t reach me. One night, in another city, I broke into an
 electronics store and used their equipment to locate every part of me
 that looked like it transmitted. I taught Lola how to use a magnetic
-drill. She straddled my chest and She freed me.</p>
+drill and she straddled my chest and made sure Better Future could
+never find us again.</p>
 <p>This was a good
 plan, in my head.</p>
-<p>In reality, I got
-as far as raising my leg before Jason pushed the button. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p>, night air
-whipping through my hair. 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>But it didn&rsquo;t
-matter, because by then I was on top of them. Jason scrambled on
-hands and knees for the device that would 
-</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Can they
-actually CONTROL him? I think yes. Not just SHUT HIM OFF but
-MANIPULATE him. That really rams home how his parts have become the
-enemy. They make him walk toward the van. And I realized it was
-worse. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; maybe some
-setup &gt;&gt;</p>
-<p></p>
-<p></p>
-<p>I drove my gun-arm
-into the floor. It punched through the concrete, titanium squealing
-on metal reinforcements.</p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Lola
-sacrifice? &gt;&gt;</p>
-<p></p>
-<p>I kissed Lola</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p>&lt;&lt; Charlie
-should tell Lola to kiss him&mdash;he makes the decision. &gt;&gt;</p>
-<p></p>
-<p></p>
-</BODY>
-</HTML>
+<p>I raised one leg.
+But it did not come down. It did not feel any different. It didn&rsquo;t
+deaden, like the gun-arm had earlier. But it did not listen to me. I
+was a statue. I looked at Lola, because I wanted her to be the last
+thing I saw before the oxygen starvation hit my brain. I started to
+cry, because now I was going to die, and miss everything. But I did
+not die, either. I just stood there.</p>
+<p>&ldquo;Now get him
+into the van,&rdquo; said Cassandra Cautery. Jason poked at his
+device. My hoof came down. My other leg took a step forward. And I
+realized it was worse.</p>
