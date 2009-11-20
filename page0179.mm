@@ -11,16 +11,6 @@ THIRTY-SEVEN</h5>
 <p></p>
 <p></p>
 <p></p>
-<p>&lt;&lt; Can they
-actually CONTROL him? I think yes. Not just SHUT HIM OFF but
-MANIPULATE him. That really rams home how his parts have become the
-enemy. They make him walk toward the van. And I realized it was
-worse. &gt;&gt;</p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
-<p></p>
 <p></p>
 <p></p>
 <p>&lt;&lt; maybe some
