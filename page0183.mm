@@ -60,6 +60,20 @@ think the parts can respond at all. &gt;&gt;</p>
 <p></p>
 <p></p>
 <p></p>
+<p>I felt touched,
+because, to be honest, I had always been a little suspicious of
+women. It was the dramatics: 
+</p>
+<p></p>
+<p> had thought they
+seemed manipulative, emotions too dramatic to be real. And now I had
+a woman 
+</p>
+<p></p>
+<p> had gone most of
+my life thinking love was a joke, and I had found a woman who loved
+me so much her heart exploded.</p>
+<p></p>
 <p></p>
 </BODY>
 </HTML>
