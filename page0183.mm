@@ -7,8 +7,8 @@ what is that, second-stage?&rdquo;</p>
 it&rsquo;s...&rdquo; Several people inhaled. There was clapping, a
 whoop, and laughter.</p>
 <p>&ldquo;Online,&rdquo;
-said the first voice. The word sounded heavy, the way you might say:
-<em>We made it</em>. &ldquo;Online.&rdquo;</p>
+said the someone. He made the word sound heavy, the way you might
+say: <em>We made it</em>. &ldquo;Online.&rdquo;</p>
 <p>I tried to blink.
 This didn&rsquo;t work. I could see, though. I could see a vase. The
 vase was clear and contained three yellow flowers. Daffodils? Yes.
