@@ -12,7 +12,7 @@ say: <em>We made it</em>. &ldquo;Online.&rdquo;</p>
 <p>I tried to blink.
 This didn&rsquo;t work. I could see, though. I could see a vase. The
 vase was clear and contained three yellow flowers. Daffodils? Yes.
-The vase sat on a plain white surface, behind which was a wall and a
+The vase sat on a plain white surface, behind which were a wall and a
 painting. It seemed to me this white surface was probably a bedside
 table, so I tried to turn my head to see the rest of the room. This
 didn&rsquo;t work, either.</p>
