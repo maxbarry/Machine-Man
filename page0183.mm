@@ -33,8 +33,8 @@ response.&rdquo;</p>
 <p><em>Where am I? </em>I
 tried to say, but again, I made no sound. I felt panic, because when
 no part of your body is doing what you tell it, not a single muscle,
-that&rsquo;s pretty worrisome. But it didn&rsquo;t seem to matter to
-the woman: she nodded as if she understood anyway.</p>
+that&rsquo;s worrisome. But it didn&rsquo;t seem to matter to the
+woman: she nodded as if she understood anyway.</p>
 <p>&ldquo;You&rsquo;re
 in a research and development facility. We&rsquo;ve been taking care
 of you. You came here as part of the asset diversification process
