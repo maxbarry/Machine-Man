@@ -26,14 +26,14 @@ I IN THERE IS MY BRAIN IN THERE</span></p>
 yes. But not your <em>brain</em> brain. You&rsquo;re solid state.&rdquo;</p>
 <p><span class="charlietext">HOW
 AM I SOLID STATE</span></p>
-<p>&ldquo;You&rsquo;re
-intrigued, right? I&rsquo;ve been dying to tell you about it,
-Charlie. It&rsquo;s amazing. Well. I <em>have</em> told you about it.
-Like about a thousand times. But you couldn&rsquo;t hear me.&rdquo;</p>
+<p>&ldquo;I&rsquo;ve
+been dying to tell you about it, Charlie. It&rsquo;s amazing. Well. I
+<em>have</em> told you about it. Like about a thousand times. But you
+couldn&rsquo;t hear me.&rdquo;</p>
 <p><span class="charlietext">I
 AM A ROBOT</span>, wrote
 the screen. <span class="charlietext">I
-AM A BOX DEAD MACHINE BOX</span></p>
+AM A BOX DEAD MACHINE BOX</span>.</p>
 <p>&ldquo;No, Charlie.
 You&rsquo;re not a box. The box is your body, that&rsquo;s all.&rdquo;</p>
 <p><span class="charlietext">DO
@@ -45,12 +45,12 @@ and my heart fried everything, the Better Future people tried to drag
 you to their truck. They shifted you about ten feet, then they
 dropped you and tried to run away because the police were coming. I
 could see you, Charlie, but I couldn&rsquo;t reach you. The
-paramedics put me in an ambulance and I didn&rsquo;t see you for four
-days.&rdquo; She straightened and unbuttoned her shirt. There was a
-white scar across her chest: thick, not new. &ldquo;I made them give
-me the heart you made for me. I had to yell at some people. But I got
-it. I&rsquo;ve had to yell at a lot of people over the last three
-years, Charlie, because they keep wanting to give up on you.&rdquo;</p>
+paramedics put me in an ambulance and then I didn&rsquo;t see you for
+four days.&rdquo; She straightened and unbuttoned her shirt. There
+was a white scar across her chest: thick, not new. &ldquo;I made them
+give me the heart you made for me. I had to yell at some people. But
+I got it. I&rsquo;ve had to yell at a lot of people over the last
+three years, Charlie, because they keep wanting to give up on you.&rdquo;</p>
 <p><span class="charlietext">THREE
 YEARS HOW IS IT THREE YEARS</span></p>
 <p>&ldquo;It feels

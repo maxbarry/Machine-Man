@@ -12,9 +12,9 @@ slowly.&rdquo;</p>
 that had been draped over me was lifted, by a man in a striped shirt
 and bow tie. The thing was a lab coat. As it pulled back, the sleeve
 snagged and pulled me around in a half-circle until I was facing the
-gray box, the monitor. I tried to scream. Words streamed across the
-monitor: <span class="charlietext">GOD
-NO BOX BOX I AM A DEAD MACHINE BOX NN N L N OLALOLALOLALOLALOLALOLA&mdash;</span></p>
+steel gray box, the monitor. I tried to scream. Words streamed across
+the monitor: <span class="charlietext">GOD
+NO BOX BOX I AM IN A BOX NN N L N OLALOLALOLALOLALOLALOLA&mdash;</span></p>
 <p>The lab coat
 flopped over me again, blocking my sight. &ldquo;Reverse that!
 Reverse all that!&rdquo;</p>
@@ -25,7 +25,7 @@ down.&rdquo;</p>
 output?&rdquo;</p>
 <p>&ldquo;Yeah.&rdquo;</p>
 <p>I felt myself
-shrinking, ceasing to exist in pieces.</p>
+shrinking. I was ceasing to exist in pieces.</p>
 <p>&ldquo;Maybe she&rsquo;s
 right,&rdquo; said the voice. &ldquo;Maybe we&mdash;&rdquo; But
 before I could hear the rest of this, I was gone.</p>
