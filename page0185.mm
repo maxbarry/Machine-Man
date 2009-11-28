@@ -83,9 +83,10 @@ START</span></p>
 She smiled. &ldquo;That&rsquo;s what it is.&rdquo;</p>
 <p>It was odd, knowing
 I was seeing her through a camera lens. But not as odd as I would
-have thought. Perhaps you could get used to anything. Now I thought
-about it, it was kind of strange that people felt comfortable walking
-around in bodies that were mostly juice. That was pretty bizarre.</p>
+have thought. I wondered if perhaps people could adapt to anything.
+Now I thought about it, it was kind of strange that human beings felt
+comfortable walking around in bodies that were mostly made of juice.
+That was actually bizarre.</p>
 <p><span class="charlietext">CAN
 YOU SHOW ME THE ARM</span>, I said.</p>
 <p></p>
