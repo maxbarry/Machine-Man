@@ -73,7 +73,8 @@ span by. Then I was looking at a gray box. At first I thought it was
 a piece of medical equipment. It sported a few buttons, a green power
 light, and about a hundred black wires, one of which snaked toward
 me. Next to this box sat a flatscreen monitor. I thought: <em>What is
-that?</em> and letters spilled across the screen: <em>WHAT IS THAT</em>.</p>
+that?</em> and letters spilled across the screen: <span class="charlietext">WHAT
+IS THAT</span>.</p>
 <p>In the screen&rsquo;s
 reflection, I saw daffodils. Beside them, sitting on the white
 benchtop, was a tiny black cylinder mounted on a block of plastic.

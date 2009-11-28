@@ -17,7 +17,7 @@ talk, I can see you but I can&rsquo;t talk.</em></p>
 <p>Her eyes shone. &ldquo;You are talking.
 Here. Let me...&rdquo; She swiveled me around so that I could see the
 gray box with its attached monitor. It said: <span class="charlietext">I
-CAN&rsquo;T TALK I CAN SEE YOU BUT I CAN&rsquo;T TALK</span><em>.</em>
+CANNOT TALK I CAN SEE YOU BUT I CANNOT TALK</span><em>.</em>
 &ldquo;See?&rdquo; She moved closer, staying within camera range.
 &ldquo;You&rsquo;re talking. We&rsquo;re talking, Charlie.&rdquo;</p>
 <p><span class="charlietext">AM
