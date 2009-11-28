@@ -63,20 +63,20 @@ box has ports.&rdquo;</p>
 You can plug things into it.&rdquo;</p>
 <p><span class="charlietext">THINGS
 WHAT THINGS</span></p>
-<p>&ldquo;Well,&rdquo;
-she said, &ldquo;that&rsquo;s an interesting question, Charlie.
-That&rsquo;s a very interesting question. And it&rsquo;s probably a
-question you want to put some serious thought into yourself. But,
-well, while I&rsquo;ve been waiting, I kind of went ahead and...&rdquo;
-She bit her lip. &ldquo;I was going to surprise you. But now I can&rsquo;t
-wait! I&rsquo;m just going to say it. I made you an arm. You can
-probably do better. Much better. But I wanted to give you something,
-for the heart. Something from me.&rdquo;</p>
+<p>&ldquo;Well, that&rsquo;s
+an interesting question, Charlie. It&rsquo;s probably a question you
+want to put some serious thought into yourself. But, well, while I&rsquo;ve
+been waiting, I kind of went ahead and... I was going to surprise
+you. But now I can&rsquo;t wait! I&rsquo;m just going to say it. I
+made you an arm. You can probably do better. Much better. But I
+wanted to give you something. Like you gave me a heart. Something I
+made, that could be part of you.&rdquo;</p>
 <p><span class="charlietext">YOU
 MADE ME AN ARM LOLA</span></p>
-<p>&ldquo;Yeah. It&rsquo;s
-pretty cool, Charlie. I mean, it can&rsquo;t lift cars or anything.
-It&rsquo;s just a prosthetic. But it&rsquo;s a start.&rdquo;</p>
+<p>&ldquo;I&rsquo;m
+kind of stupidly proud about it, Charlie. I mean, it can&rsquo;t lift
+cars or anything. It&rsquo;s just a prosthetic. But it&rsquo;s a
+start.&rdquo;</p>
 <p><span class="charlietext">A
 START</span></p>
 <p>&ldquo;Yeah.&rdquo;
