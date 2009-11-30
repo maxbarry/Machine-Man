@@ -3,9 +3,9 @@
 <p>I opened my eyes.
 No, I didn&rsquo;t. I had no eyes. I was simply, abruptly aware. And
 I saw Lola. She was watching me, her chin resting on the heel of one
-hand, her elbow on the benchtop. Her hair looked as if she had pulled
-it into a neat pony-tail, then walked through a blizzard. She wore a
-white shirt with a grease stain on the collar. She was here.</p>
+hand, her elbow on the bench top. Her hair looked as if she had
+pulled it into a neat pony-tail, then walked through a blizzard. She
+wore a white shirt with a grease stain on the collar. She was here.</p>
 <p>&ldquo;Hey, you.&rdquo;
 She reached out and rested a hand on what felt like my head, but
 wasn&rsquo;t. &ldquo;There you are.&rdquo;</p>

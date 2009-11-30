@@ -14,7 +14,7 @@ and bow tie. The thing was a lab coat. As it pulled back, the sleeve
 snagged and pulled me around in a half-circle until I was facing the
 steel gray box, the monitor. I tried to scream. Words streamed across
 the screen: <span class="charlietext">NO
-BOX BOX I AM IN A BOX NN N L N OLALOLALOLALOLALOLALOLA&mdash;</span></p>
+BOX BOX I AM IN A BOX NN N L N OLALOLALOLALOLALOLALOLA</span>&mdash;</p>
 <p>The lab coat
 flopped over me again, blocking my sight. &ldquo;Reverse that!
 Reverse all that!&rdquo;</p>
