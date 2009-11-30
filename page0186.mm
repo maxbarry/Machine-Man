@@ -27,11 +27,11 @@ do that, and didn&rsquo;t have to. You were all far nicer to me than
 I deserved.</p>
 <p>I also want to
 mention Michael Ian Minter again. Now, I don&rsquo;t want to
-encourage people to go around goading authors, particularly when that
-author is me, but Minter&rsquo;s kick in the pants essentially
-decided me on doing this. And since I would have fully sheeted home
-the blame to him had it all gone spectacularly wrong, it&rsquo;s only
-fair I thank him now.</p>
+encourage people to go around goading authors. Particularly not when
+that author is me. But Minter&rsquo;s kick in the pants essentially
+decided me on doing this, and since I fully would have sheeted home
+the blame to him if it had all gone spectacularly wrong, it&rsquo;s
+only fair I thank him now.</p>
 <p>Thank you to Jen
 for her patience with me on those days I struggled with my deadline
 (&ldquo;I&rsquo;m not happy with my page. I have to redo my
