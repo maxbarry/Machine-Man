@@ -80,8 +80,8 @@ start.&rdquo;</p>
 START</span></p>
 <p>&ldquo;Yeah.&rdquo;
 She lay her head on her arm, her free hand continuing to stroke my
-camera. It seemed a familiar position for her, as if she had done
-this many times before. &ldquo;That&rsquo;s what it is.&rdquo;</p>
+camera. It seemed a familiar position for her: she had done this
+before. &ldquo;That&rsquo;s what it is.&rdquo;</p>
 <p>It was odd, knowing
 I was seeing her through a camera lens. But not as odd as I would
 have thought. I wondered if perhaps people could adapt to anything.
