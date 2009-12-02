@@ -13,9 +13,9 @@ was a woman with a transtibial earlier this year, her eyesight
 improved. A guy swore he got better at math. Some people start
 smelling colors, or sensing the personality of letters; that&rsquo;s
 called synesthesia. It&rsquo;s why
-we try to get people into prosthetics as quickly as possible: to
-capture roaming neurons for motor function before they latch onto
-something else.&rdquo;</p>
+we try to get people into prosthetics
+as quickly as possible: to capture roaming neurons for motor function
+before they latch onto something else.&rdquo;</p>
 <p>She shivered. &ldquo;Carl
 said his arms had a mind of their own.&rdquo; Carl still lay in the
 shadows of the elevator block behind her, wrapped in his mangled
